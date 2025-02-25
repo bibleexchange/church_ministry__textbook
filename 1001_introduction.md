@@ -4,94 +4,93 @@ There is not a lot of information in the New Testament about the structure and f
 
 Not everything we do in the church comes directly from the Bible. That does not necessarily mean that these things are good or bad. We need to take what little we know from the Bible and compare it to our modern practices to see if we are following the principles laid out in the Bible.
 
-Matthew 20:25-26 (NIV)
-25 Jesus called them together and said, “You know that the rulers of the Gentiles lord it over them, and their high officials exercise authority over them.
-26 Not so with you. Instead, whoever wants to become great among you must be your servant,
+We have to be careful that we do not copy the ideas of the world and use them in the church. As Christians, we should not look to business leaders or politicians as examples of leadership, but church leaders will be different from the leaders of natural things. What the world thinks of as a good leader is not what the Bible says is a good leader:
 
-As Christians, we should not look to business leaders or politicians as examples of leadership, but church leaders will be different from the leaders of natural things. There are also many things from our current church culture that does not come from biblical principles, but are things that were implemented by leaders who wanted to increase their power over others. When we go into our study, we have to clear our minds of all the things that we think about leadership so that we can be ready to learn what the Bible really says about leadership.
+> Matthew 20:25–26  
+> But Jesus called them unto him, and said, Ye know that the princes of the Gentiles exercise dominion over them, and they that are great exercise authority upon them.  
+> But it shall not be so among you: but whosoever will be great among you, let him be your minister;
 
-### The things that matter to us don't always matter to God
+There are also many things from our current church culture that does not come from biblical principles, but are things that were implemented by leaders who wanted to increase their power over others. When we go into our study, we have to clear our minds of all the things that we think about leadership so that we can be ready to learn what the Bible really says about leadership.
 
-> Matthew 7:21-23
-> 21 Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven.  
-> 22 Many will say to me in that day, Lord, Lord, have we not prophesied in thy name? and in thy name have cast out devils? and in thy name done many wonderful works?  
-> 23 And then will I profess unto them, I never knew you: depart from me, ye that work iniquity.
+## The things that matter to us don't always matter to God
 
-It's not about having many people, but that the people you do have under your authority grow up spiritually.
+### The number of people is not as important as spiritual growth
 
-Matthew 7:13-14
-13 Enter ye in at the strait gate: for wide is the gate, and broad is the way, that leadeth to destruction, and many there be which go in thereat:
-14 Because strait is the gate, and narrow is the way, which leadeth unto life, and few there be that find it.
+Matthew 7:13-14 makes it clear that there will not be many people who enter the kingdom of heaven. As a leader in the church, you should not be focusing on getting many people into the church, but you should focus that the people you do have under your authority grow up spiritually (Ephesians 4:11-13). Of course we can do outreach ministry to the lost, but what good is it if people come to church and remain spiritually immature?
 
-Ephesians 4:11-13
+### Spiritual gifts are not as important as right relationship with God
+
+Some leaders look to have great power with God, but it is more important that we actually know who God is. Jesus said that in the last day, there will be people who will stand before the judgment and boast of all the miracles that they did. God will tell them to go away because He never knew them (Matthew 7:21-23).
 
 ## What is a leader?
 
 ### A leader is servant of all
 
-In all four Gospels, Jesus tells his disciples that they are supposed to be servants.
+In all four Gospels, Jesus tells his disciples that they are supposed to be servants:
 
-Matthew 20:20-28 (NIV)
-20 Then the mother of Zebedee’s sons came to Jesus with her sons and, kneeling down, asked a favor of him.
-21 “What is it you want?” he asked. She said, “Grant that one of these two sons of mine may sit at your right and the other at your left in your kingdom.”
-22 “You don’t know what you are asking,” Jesus said to them. “Can you drink the cup I am going to drink?”“We can,” they answered.
-23 Jesus said to them, “You will indeed drink from my cup, but to sit at my right or left is not for me to grant. These places belong to those for whom they have been prepared by my Father.”
-24 When the ten heard about this, they were indignant with the two brothers.
-25 Jesus called them together and said, “You know that the rulers of the Gentiles lord it over them, and their high officials exercise authority over them.
-26 Not so with you. Instead, whoever wants to become great among you must be your servant,
-27 and whoever wants to be first must be your slave—
-28 just as the Son of Man did not come to be served, but to serve, and to give his life as a ransom for many.”
-
-Mark 10:35-45
-35 And James and John, the sons of Zebedee, come unto him, saying, Master, we would that thou shouldest do for us whatsoever we shall desire.
-36 And he said unto them, What would ye that I should do for you?
-37 They said unto him, Grant unto us that we may sit, one on thy right hand, and the other on thy left hand, in thy glory.
-38 But Jesus said unto them, Ye know not what ye ask: can ye drink of the cup that I drink of? and be baptized with the baptism that I am baptized with?
-39 And they said unto him, We can. And Jesus said unto them, Ye shall indeed drink of the cup that I drink of; and with the baptism that I am baptized withal shall ye be baptized:
-40 But to sit on my right hand and on my left hand is not mine to give; but it shall be given to them for whom it is prepared.
-41 And when the ten heard it, they began to be much displeased with James and John.
-42 But Jesus called them to him, and saith unto them, Ye know that they which are accounted to rule over the Gentiles exercise lordship over them; and their great ones exercise authority upon them.
-43 But so shall it not be among you: but whosoever will be great among you, shall be your minister:
-44 And whosoever of you will be the chiefest, shall be servant of all.
-45 For even the Son of man came not to be ministered unto, but to minister, and to give his life a ransom for many.
-
-Mark 9:33-37 (NIV)
-33 They came to Capernaum. When he was in the house, he asked them, “What were you arguing about on the road?”
-34 But they kept quiet because on the way they had argued about who was the greatest.
-35 Sitting down, Jesus called the Twelve and said, “Anyone who wants to be first must be the very last, and the servant of all.”
-36 He took a little child whom he placed among them. Taking the child in his arms, he said to them,
-37 “Whoever welcomes one of these little children in my name welcomes me; and whoever welcomes me does not welcome me but the one who sent me.”
-
-John 13:12-17 (NIV)
-12 When he had finished washing their feet, he put on his clothes and returned to his place. “Do you understand what I have done for you?” he asked them.
-13 “You call me ‘Teacher’ and ‘Lord,’ and rightly so, for that is what I am.
-14 Now that I, your Lord and Teacher, have washed your feet, you also should wash one another’s feet.
-15 I have set you an example that you should do as I have done for you.
-16 Very truly I tell you, no servant is greater than his master, nor is a messenger greater than the one who sent him.
-17 Now that you know these things, you will be blessed if you do them.
-
-Luke 22:24-27 (NIV)
-24 A dispute also arose among them as to which of them was considered to be greatest.
-25 Jesus said to them, “The kings of the Gentiles lord it over them; and those who exercise authority over them call themselves Benefactors.
-26 But you are not to be like that. Instead, the greatest among you should be like the youngest, and the one who rules like the one who serves.
-27 For who is greater, the one who is at the table or the one who serves? Is it not the one who is at the table? But I am among you as one who serves.
+1. Matthew 20:20-28
+2. Mark 9:33-37; 10:35-45
+3. Luke 22:24-27
+4. John 13:12-17
 
 ### A leader is to be a shepherd
 
-1 Peter 5:1-4 (NIV)
-1 To the elders among you, I appeal as a fellow elder and a witness of Christ’s sufferings who also will share in the glory to be revealed:
-2 Be shepherds of God’s flock that is under your care, watching over them—not because you must, but because you are willing, as God wants you to be; not pursuing dishonest gain, but eager to serve;
-3 not lording it over those entrusted to you, but being examples to the flock.
-4 And when the Chief Shepherd appears, you will receive the crown of glory that will never fade away.
+A leader cares for the needs of others. The command is given two times in the New Testament for the leaders of the church to be shepherds of the flock of God (1 Peter 5:1-4; Acts 20:28). Jesus also told Peter to feed His sheep (John 21:15). The shepherd is one who takes care of all needs of the sheep, including making sure they have food and water and protecting them (Psalm 23).
 
-Acts 20:28 (NIV)
-28 Keep watch over yourselves and all the flock of which the Holy Spirit has made you overseers. Be shepherds of the church of God, which he bought with his own blood.
+<!--Jesus is our example as the good shepherd.
 
-#### A leader cares for the needs of others
+Hirelings-->
 
-(Physical care for the people...)
+#### The shepherd takes care of spiritual needs
 
-Caring for physical needs of people is a neglected aspect of Christian ministry, because like the apostles, we say we cannot leave the preaching of the Word to serve tables. But they still made sure the people were fed, even though they did not do it themselves. They found other leaders who could do that work.
+<!--Grow by the Word-->
+
+#### The shepherd takes care of physical needs
+
+Caring for physical needs of people is a neglected aspect of Christian ministry, because like the apostles, we say we cannot leave the preaching of the Word to serve tables. But they still made sure the people were fed, even though they did not do it themselves. They found other leaders who could do that work (Acts 6:1-8).
+
+Jesus not only taught the people, but He also gave them physical food (Matthew 15:29-32).
+
+<!-- James and pure religion . Cannot only say be warm (James 2:15-17). Jesus condemming the people who do not help the poor (Matthew 25:35-36, 40). The early church having all in common (Acts 4:32-35). 1 John (1 John 3:17-18). Paul taking up a collection for the poor saints in Jerusalem. The leaders were to be hospitable-->
+
+<!--Matthew 25:35-36, 40
+"For I was hungry and you gave me something to eat, I was thirsty and you gave me something to drink, I was a stranger and you invited me in, I needed clothes and you clothed me, I was sick and you looked after me, I was in prison and you came to visit me... Truly I tell you, whatever you did for one of the least of these brothers and sisters of mine, you did for me."
+Luke 10:30-37 (The Good Samaritan)
+Jesus tells the story of a man who was beaten and robbed, then helped by a Samaritan who "bandaged his wounds, pouring on oil and wine. Then he put the man on his own donkey, brought him to an inn and took care of him."
+James 2:15-17
+"Suppose a brother or a sister is without clothes and daily food. If one of you says to them, 'Go in peace; keep warm and well fed,' but does nothing about their physical needs, what good is it? In the same way, faith by itself, if it is not accompanied by action, is dead."
+Acts 4:32-35
+"All the believers were one in heart and mind. No one claimed that any of their possessions was their own, but they shared everything they had... There were no needy persons among them. For from time to time those who owned land or houses sold them, brought the money from the sales and put it at the apostles' feet, and it was distributed to anyone who had need."
+1 John 3:17-18
+"If anyone has material possessions and sees a brother or sister in need but has no pity on them, how can the love of God be in that person? Dear children, let us not love with words or speech but with actions and in truth."
+Romans 12:13
+"Share with the Lord's people who are in need. Practice hospitality."
+Galatians 6:10
+"Therefore, as we have opportunity, let us do good to all people, especially to those who belong to the family of believers."
+Luke 3:11
+"John answered, 'Anyone who has two shirts should share with the one who has none, and anyone who has food should do the same.'"
+Acts 20:35
+"In everything I did, I showed you that by this kind of hard work we must help the weak, remembering the words the Lord Jesus himself said: 'It is more blessed to give than to receive.'"
+1 Timothy 5:8
+"Anyone who does not provide for their relatives, and especially for their own household, has denied the faith and is worse than an unbeliever."
+1 Timothy 6:17-18
+"Command those who are rich in this present world not to be arrogant nor to put their hope in wealth, which is so uncertain, but to put their hope in God, who richly provides us with everything for our enjoyment. Command them to do good, to be rich in good deeds, and to be generous and willing to share."
+2 Corinthians 8:13-15
+"Our desire is not that others might be relieved while you are hard pressed, but that there might be equality. At the present time your plenty will supply what they need, so that in turn their plenty will supply what you need. The goal is equality, as it is written: 'The one who gathered much did not have too much, and the one who gathered little did not have too little.'"
+Hebrews 13:16
+"And do not forget to do good and to share with others, for with such sacrifices God is pleased."
+Philippians 2:4
+"Each of you should look not only to your own interests, but also to the interests of others."
+Matthew 6:2-4
+"So when you give to the needy, do not announce it with trumpets, as the hypocrites do in the synagogues and on the streets, to be honored by others. Truly I tell you, they have received their reward in full. But when you give to the needy, do not let your left hand know what your right hand is doing, so that your giving may be in secret. Then your Father, who sees what is done in secret, will reward you."
+Acts 11:29-30
+"The disciples, as each one was able, decided to provide help for the brothers and sisters living in Judea. This they did, sending their gift to the elders by Barnabas and Saul."
+Matthew 19:21
+"Jesus answered, 'If you want to be perfect, go, sell your possessions and give to the poor, and you will have treasure in heaven. Then come, follow me.'"
+Titus 3:14
+"Our people must learn to devote themselves to doing what is good, in order to provide for urgent needs and not live unproductive lives."
+Ephesians 4:28
+"Anyone who has been stealing must steal no longer, but must work, doing something useful with their own hands, that they may have something to share with those in need."-->
 
 ### A leader is to be an example
 
@@ -108,6 +107,8 @@ We should want other people immitate us and follow in what we do.
 
 > 1 corinthians 11:1
 > Be ye followers of me, even as I also am of Christ.
+
+1 Peter 5:3
 
 ### A leader builds up
 
