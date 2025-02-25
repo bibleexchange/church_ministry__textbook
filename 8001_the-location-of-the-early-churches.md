@@ -1,0 +1,12 @@
+# The location of the early churches
+
+(Maybe the social setting of the early church)
+
+In houses.
+
+> Prisca and Aquila are recognized as having a church (assembly) that meets in their home (τὴν κατʼ οἶκον αὐτῶν ἐκκλησίαν, Rom. 16:5; 1 Cor. 16:19); Nympha hosts a church in her house (τὴν κατʼ οἶκον αὐτῆς ἐκκλησίαν, Col. 4:15); Philemon hosts a church in his house (τῇ κατʼ οἶκόν σου ἐκκλησίᾳ, Phlm. 2); and Gaius appears to have been a host both to Paul and to the whole Corinthian community (ὁ ξένος μου καὶ ὅλης τῆς ἐκκλησίας, Rom. 16:23)
+> Clarke, A. D. (2012). A Pauline Theology of Church Leadership (M. Goodacre, Ed.; Vol. 362, p. 45). Bloomsbury.
+
+Talk about the household codes.
+
+The temple is referred to as the people of God and not a building.
