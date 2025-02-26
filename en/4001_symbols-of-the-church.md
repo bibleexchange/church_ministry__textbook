@@ -1,5 +1,7 @@
 # Symbols of the church
 
+We do not have any place in the New Testament that explains exactly what the church is and how it is supposed to function. What we do have are symbols that help us understand what the church is supposed to be.
+
 ## The body
 
 In the church, there is not one human leader who is more important than all other people in the church. In the New Testament, we do not have a description of exactly what the day to day operation of the church was meant to be. What we do have is symbols or comparisons to things in the natural world.
@@ -12,9 +14,9 @@ The head of the body is not a human, but Jesus.
 
 The priesthood of all believers (1 Peter 2:9).
 
-## Members of the body of Christ
+### Members of the body of Christ
 
-### No jeasousy of other workers
+#### No jeasousy of other workers
 
 > 1 Co 3:3–11 (TNIV)
 > 3You are still worldly. For since there is jealousy and quarreling among you, are you not worldly? Are you not acting like mere human beings? 4For when one says, “I follow Paul,” and another, “I follow Apollos,” are you not mere human beings?
@@ -24,7 +26,7 @@ The priesthood of all believers (1 Peter 2:9).
 > 1 Co 3:21–23 (TNIV)
 > 21 So then, no more boasting about human leaders! All things are yours, 22whether Paul or Apollos or Cephas or the world or life or death or the present or the future—all are yours, 23and you are of Christ, and Christ is of God.
 
-### Different types of work in the church
+#### Different types of work in the church
 
 > Acts 6:1-6  
 > 6 And in those days, when the number of the disciples was multiplied, there arose a murmuring of the Grecians against the Hebrews, because their widows were neglected in the daily ministration.
@@ -38,4 +40,6 @@ Even though Stephen was chosen to serve tables, that did not mean that he was of
 
 > Acts 6:8 And Stephen, full of faith and power, did great wonders and miracles among the people.
 
-### Different spiritual gifts
+#### Different spiritual gifts
+
+## Building
