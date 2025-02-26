@@ -78,6 +78,16 @@ The continuation of the collection: 2 Cor. 8:4, 8:13; 9:1-12
 > 26 For Macedonia and Achaia were pleased to make a contribution for the poor among the Lord’s people in Jerusalem.
 > 27 They were pleased to do it, and indeed they owe it to them. For if the Gentiles have shared in the Jews’ spiritual blessings, they owe it to the Jews to share with them their material blessings.
 
+<!--
+Luke 3:11
+"John answered, 'Anyone who has two shirts should share with the one who has none, and anyone who has food should do the same.'"
+
+2 Corinthians 8:13-15
+"Our desire is not that others might be relieved while you are hard pressed, but that there might be equality. At the present time your plenty will supply what they need, so that in turn their plenty will supply what you need. The goal is equality, as it is written: 'The one who gathered much did not have too much, and the one who gathered little did not have too little.'"
+
+Acts 11:29-30
+"The disciples, as each one was able, decided to provide help for the brothers and sisters living in Judea. This they did, sending their gift to the elders by Barnabas and Saul."-->
+
 ### Should pastors get money for their work?
 
 All the requirements for leaders in the church from 1 Timothy 3 and Titus say that the leader should not be greedy for money.
