@@ -16,7 +16,7 @@ The priesthood of all believers (1 Peter 2:9).
 
 ### Members of the body of Christ
 
-#### No jeasousy of other workers
+#### No jealousy of other workers
 
 > 1 Co 3:3–11 (TNIV)
 > 3You are still worldly. For since there is jealousy and quarreling among you, are you not worldly? Are you not acting like mere human beings? 4For when one says, “I follow Paul,” and another, “I follow Apollos,” are you not mere human beings?

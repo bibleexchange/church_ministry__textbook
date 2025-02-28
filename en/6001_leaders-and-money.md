@@ -2,7 +2,7 @@
 
 ### What is the purpose of offerings in the N.T. church?
 
-#### It does not matter the ammount of the offering, but the heart
+#### It does not matter the amount of the offering, but the heart
 
 > Mark 12:41-44
 > 41 And Jesus sat over against the treasury, and beheld how the people cast money into the treasury: and many that were rich cast in much.
@@ -43,7 +43,7 @@ We give to find spiritual blessings:
 > 18 That they do good, that they be rich in good works, ready to distribute, willing to communicate;
 > 19 Laying up in store for themselves a good foundation against the time to come, that they may lay hold on eternal life.
 
-We cannot buy spiiritual things (Acts 8:9, 13, 18-20).
+We cannot buy spiritual things (Acts 8:9, 13, 18-20).
 
 #### We give to God and not so man can see
 

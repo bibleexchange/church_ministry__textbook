@@ -9,7 +9,7 @@ The process of some people being chosen as leaders:
 - Jesus calling the disciples
 - The caul of Paul: was first taught, vision, submitted to others for baptism, learned in the wilderness
 
-### Character
+## Character
 
 We will not go over every point, but we will combine these lists together and highlight a few things that are repeated among them.
 
@@ -42,35 +42,41 @@ Didache 15:1-2
 1 APPOINT therefore for yourselves bishops and deacons worthy of the Lord, meek men, and not lovers of money, and truthful and approved, for they also minister to you the ministry of the prophets and teachers.
 2 Therefore do not despise them, for they are your honourable men together with the prophets and teachers.
 
-#### Not angry
+### Not angry
 
-#### Not greedy for money
+### Not greedy for money
 
 This same things is said for bishops, deacons, and elders.
 
 We will talk more about leaders and money later.
 
-#### Must take good care of his family
+### Must take good care of his family
 
 If he cannot take care of his family, how can he take care of the church?
 
-### Age
+### Humility
+
+Not listed in any of the qualification lists, but part of the teaching of Jesus.
+
+## Age
 
 1 Tim 3:6 says that a bishop cannot be a novice, but those that mean they must be a certain age?
 
 > 1 Timothy 4:12
 > 12 Let no man despise thy youth; but be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity.
 
-### Marital status
+<!--Use of the title "elder." Older women teach the younger-->
+
+## Marital status
 
 Does someone have to be married to be a worker in the church? See 1 Tim. 3:2
 
 > Paul could have said clearly (1) “Must be married,” (2) “Not polygamous,” (3) “Faithful to his wife,” or (4) “Not remarried/divorced.”
 > Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 170). Word, Incorporated.
 
-#### Possible meaning 1: Must be married
+### Possible meaning 1: Must be married
 
-##### Paul was not married
+#### Paul was not married
 
 > 1 Corinthians 7:8 (KJV 1900)
 > 8 I say therefore to the unmarried and widows, It is good for them if they abide even as I.
@@ -121,7 +127,7 @@ Marriage is not a sin. It can even be a good thing. But it can limit your time, 
 
 There is probably a little bit of 2, 3, and 4 meant here.
 
-### Gender
+## Gender
 
 Does a leader have to be a man?
 
@@ -155,7 +161,7 @@ In the New Testament:
 
 Besides these, Jesus had deep theological conversations with women.
 
-#### Then why does Paul say not to let women teach in the church?
+### Then why does Paul say not to let women teach in the church?
 
 > 1 Timothy 2:11–12 (KJV 1900)
 > 11 Let the woman learn in silence with all subjection.

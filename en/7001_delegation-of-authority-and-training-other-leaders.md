@@ -22,6 +22,8 @@ Titus 2:3–4 (KJV 1900)
 
 <!--not sure where this should go. Could be a section on our response to leadership. Add some general thoughts about secular leaders from Romans 13.
 
+What to do when you are not the leader.
+
 Hebrews 13:17 (ESV)
 Obey your leaders and submit to them, for they are keeping watch over your souls, as those who will have to give an account. Let them do this with joy and not with groaning, for that would be of no advantage to you.-->
 

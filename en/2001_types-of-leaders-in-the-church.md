@@ -89,7 +89,7 @@ Philip was an evangelist (Acts 21:8). (In the SUV it is just translated as "prea
 
 ## Pastor
 
-The noun is only used one time in the New Testament as a word for a church leader (Eph. 4:11) and two times in the verb form (1 Pet. 5:1-4; Acts 20:28).
+The noun is only used one time in the New Testament as a word for a church leader (Eph. 4:11) and two times in the verb form (I Pet. 5:1-4; Acts 20:28).
 
 Even though today this is the most common name for a church leader, we have very little information from the Bible about what the duties were of the pastor.
 
