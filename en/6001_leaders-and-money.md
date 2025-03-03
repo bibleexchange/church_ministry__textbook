@@ -90,6 +90,11 @@ Acts 11:29-30
 
 ### Should pastors get money for their work?
 
+Galatians 6:6 (TNIV)
+6Nevertheless, those who receive instruction in the word should share all good things with their instructor.
+
+<!--Gal. 6:6 is not so clear in KJV-->
+
 All the requirements for leaders in the church from 1 Timothy 3 and Titus say that the leader should not be greedy for money.
 
 Paul had the right to get paid for his work as an apostle, but he chose not to:
@@ -144,6 +149,30 @@ We should not try to sell the gospel:
 
 > 2 Corinthians 2:17 (TNIV)
 > 17 Unlike so many, we do not peddle the word of God for profit. On the contrary, in Christ we speak before God with sincerity, as those sent from God.
+
+Some tried to make a profit off the Gospel:
+
+1 Timothy 6:5–10 (KJV 1900)
+5Perverse disputings of men of corrupt minds, and destitute of the truth, supposing that gain is godliness: from such withdraw thyself.
+6But godliness with contentment is great gain.
+7For we brought nothing into this world, and it is certain we can carry nothing out.
+8And having food and raiment let us be therewith content.
+9But they that will be rich fall into temptation and a snare, and into many foolish and hurtful lusts, which drown men in destruction and perdition.
+10For the love of money is the root of all evil: which while some coveted after, they have erred from the faith, and pierced themselves through with many sorrows.
+
+Titus 1:11 (KJV 1900)
+11Whose mouths must be stopped, who subvert whole houses, teaching things which they ought not, for filthy lucre’s sake.
+
+Leaders should not be looking for money:
+
+1 Peter 5:2 (KJV 1900)
+2Feed the flock of God which is among you, taking the oversight thereof, not by constraint, but willingly; not for filthy lucre, but of a ready mind;
+
+1 Timothy 3:3 (KJV 1900)
+3Not given to wine, no striker, not greedy of filthy lucre; but patient, not a brawler, not covetous;
+
+Titus 1:7 (KJV 1900)
+7For a bishop must be blameless, as the steward of God; not selfwilled, not soon angry, not given to wine, no striker, not given to filthy lucre;
 
 ### Church leaders should be willing to work with their hands
 

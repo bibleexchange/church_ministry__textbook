@@ -22,6 +22,9 @@ Many of the words used by the church for leaders were words already commonly use
 > At the later date which some would give to this letter it would seem almost impossible not to have reference to the local ministry of bishops, presbyters and deacons which had come to be of greatest importance to the church. As it is, the apostle is not thinking of the ministers of Christ in their offices but rather according to their specific spiritual gifts and their work, and not least of those who in the exercise of their functions were not limited to a particular locality.
 > Foulkes, F. (1989). Ephesians: an introduction and commentary (Vol. 10, p. 124). InterVarsity Press.-->
 
+<!--What seems to be clear from the two relevant letters to coworkers is that neither Timothy nor Titus exercises a local church role. Timothy appears to relate to the single Ephesian church in the capacity of apostolic delegate (1:3). Titus, however, in the same capacity appears to be in charge of at least several churches associated with Cretan towns (Titus 1:5).
+Towner, P. H. (2006). The Letters to Timothy and Titus (p. 242). Wm. B. Eerdmans Publishing Co.-->
+
 ## Coworker
 
 The term most frequently used by Paul to describe specific individuals is "co-worker," which occurs twelve times in his writing (Rom. 16:3, 9, 21; I Cor. 3:9; II Cor. 1:24; 8:23; Phil. 2:25; 4:3; Col. 4:11; I Thess. 3:2; Phlm. 1, 24).<sup>[2]</sup>
@@ -115,6 +118,10 @@ Some people think that overseers and deacons were the same thing, but Philippian
 > Didache 15:1-4  
 > Appoint therefore for yourselves bishops and deacons worthy of the Lord, meek men, and not lovers of money, and truthful and approved, for they also minister to you the ministry of the prophets and teachers. Therefore do not despise them, for they are your honorable men together with the prophets and teachers. And reprove one another not in wrath but in peace as you find in the Gospel, and let none speak with any who has done a wrong to his neighbor, nor let him hear a word from you until he repents. But your prayers and alms and all your acts perform as ye find in the Gospel of our Lord.
 
+<!--Acts 20:28 (KJV 1900)
+28Take heed therefore unto yourselves, and to all the flock, over the which the Holy Ghost hath made you overseers, to feed the church of God, which he hath purchased with his own blood.
+-->
+
 ### Ignatius on church hierarchy
 
 By the time of Ignatius in the second century (107 AD), there was one "head" bishop for each city. These were over the elders, who were over the deacons.<sup>[6]</sup> Ignatius taught that the the bishop spoke directly for God and that to disobey the bishop was to disobey God.
@@ -153,7 +160,9 @@ When comparing the requirements for overseer and deacon in I Timothy chapter 3, 
 
 ## Elder
 
-This is the most common name for leaders in the church. There are two Greek words used for this: _neōteros_ and _presbyteros_. In all Swahili translations, both these words are translated as "mzee."
+<!--fix this first sentence in SW, because I sent it off to the translator wrong:-->
+
+This is the most common name for leaders in the church. The Greek word is _presbyteros_, which means "an older person." In all Swahili translations this word is translated as "mzee."
 
 It could just refer to an older peron in the church, but also could be an actual appointed position, as we see in Acts 14:23 when Paul and Barnabas appointed elders in the church. Titus 1:5-9 gives a list of qualifications of elders. Polycarp, who was taught by the Apostle John, also gave a list of qualifications for elders:
 
@@ -162,6 +171,8 @@ It could just refer to an older peron in the church, but also could be an actual
 In the 2nd and 3rd epistles of John, John calls himself an elder and Peter also calls himself an elder (I Pet. 5:1).
 
 The elders were to pray for people in the church that were sick (James 5:14).
+
+<!--Talk about the body of elders-->
 
 ---
 

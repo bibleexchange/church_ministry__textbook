@@ -11,6 +11,14 @@ The process of some people being chosen as leaders:
 
 ## Character
 
+All preachers can say they are called of God, but how do we know if they will really be a good leader in the church? We already said before that what makes a good leader in worldly things is not what will make a good leader in spiritual things.
+
+We should not just look for someone who has a strong personality or is a "powerful" preacher. We need to look at how they live their lives. Jesus said we would know a tree by its fruit.
+
+The only "ministry" ability in the list is that the overseers and elders should be able to teach.
+
+These things are not things special for only leaders, but they are expected of all Christians. The leader is supposed to be an example of these characteristics.
+
 We will not go over every point, but we will combine these lists together and highlight a few things that are repeated among them.
 
 1 Timothy 3:1-13
@@ -42,6 +50,16 @@ Didache 15:1-2
 1 APPOINT therefore for yourselves bishops and deacons worthy of the Lord, meek men, and not lovers of money, and truthful and approved, for they also minister to you the ministry of the prophets and teachers.
 2 Therefore do not despise them, for they are your honourable men together with the prophets and teachers.
 
+### Temperate
+
+> Second, the overseer must be “temperate” (3:11, Titus 2:2). The question is whether the term is to be taken as a literal reference to the virtue of moderation in the use of wine (3:3, 8; Titus 2:2, 3), or rather as a figurative reference to balanced, sober thinking.48 The unequivocal reference to literal sobriety in 3:3 suggests the moral sense of being balanced in thought here. The overseer is to maintain command of his reason, to be watchful and observant of things going on around him, and balanced in his assessments.  
+> Towner, P. H. (2006). The Letters to Timothy and Titus (p. 251). Wm. B. Eerdmans Publishing Co.
+
+### Self control
+
+> Third, “self-control” (see 2:9 Excursus) is required of the overseer. One of the cardinal virtues in Greco-Roman ethical thought, it was appropriated by Hellenistic Judaism and supplied with a theological basis in the Torah (see on Titus 1:8). Paul deepened this basis by linking it to the Christ event (Titus 2:12). The term covers a range of meaning (prudence, moderation, sobriety), but gives the general sense of control over the behavior and the impulses and emotions beneath it. Although it appears here as a requirement for leadership (Titus 1:8), it was expected of all believers (2:9, 15; Titus 2:2, 4, 5, 6).
+> Towner, P. H. (2006). The Letters to Timothy and Titus (pp. 251–252). Wm. B. Eerdmans Publishing Co.
+
 ### Not angry
 
 ### Not greedy for money
@@ -54,9 +72,25 @@ We will talk more about leaders and money later.
 
 If he cannot take care of his family, how can he take care of the church?
 
+### Hospitable
+
+Romans 12:13 (KJV 1900)
+13Distributing to the necessity of saints; given to hospitality.
+
+Hebrews 13:2 (KJV 1900)
+2Be not forgetful to entertain strangers: for thereby some have entertained angels unawares.
+
+1 Peter 4:9 (KJV 1900)
+9Use hospitality one to another without grudging.
+
+> Given the dangers of travel in the empire and the economic uncertainties faced by many believers, the early Christian mission and churches depended upon those who would open their homes and share their goods.  
+> Towner, P. H. (2006). The Letters to Timothy and Titus (p. 252). Wm. B. Eerdmans Publishing Co.
+
 ### Humility
 
 Not listed in any of the qualification lists, but part of the teaching of Jesus.
+
+## Good leader in the home
 
 ## Age
 
@@ -125,7 +159,12 @@ Marriage is not a sin. It can even be a good thing. But it can limit your time, 
 > We have already said, that a bishop, a presbyter, and a deacon, when they are constituted, must be but once married, whether their wives be alive or whether they be dead; and that it is not lawful for them, if they are unmarried when they are ordained, to be married afterwards; or if they be then married, to marry a second time, but to be content with that wife, which they had when they came to ordination. We also appoint that the ministers, and singers, and readers, and porters, shall be only once married. But if they entered into the clergy before they were married, we permit them to marry, if they have an inclination thereto, lest they sin and incur punishment. But we do not permit any one of the clergy to take to wife either a courtesan, or a servant, or a widow, or one that is divorced, as also the law says. (6.3.17; ANF 7:457)
 > Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 191). Word, Incorporated.
 
+#### Conclusion to marriage status
+
 There is probably a little bit of 2, 3, and 4 meant here.
+
+> The phrase translated “faithful to his wife” (TNIV) is literally “husband of one wife” (Titus 1:6). But the NIV had “the husband of but one wife” and the NRSV has “married only once,” so the ambiguity of the phrase is evident. Was it meant to rule out polygamists,38 or to exclude unmarried men from holding the office? Did it intend to prohibit remarriage, either after the death of a spouse,40 or after a divorce? Various considerations make these specific interpretations less than likely,42 and the broader interests of the passage suggest that fidelity in marriage (understood to be monogamous and acceptable in the eyes of the community) is meant.  
+> Towner, P. H. (2006). The Letters to Timothy and Titus (pp. 250–251). Wm. B. Eerdmans Publishing Co.
 
 ## Gender
 

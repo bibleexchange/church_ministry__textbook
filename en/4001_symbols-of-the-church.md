@@ -42,4 +42,15 @@ Even though Stephen was chosen to serve tables, that did not mean that he was of
 
 #### Different spiritual gifts
 
+Romans 12:5–8 (KJV 1900)
+5So we, being many, are one body in Christ, and every one members one of another.
+6Having then gifts differing according to the grace that is given to us, whether prophecy, let us prophesy according to the proportion of faith;
+7Or ministry, let us wait on our ministering: or he that teacheth, on teaching;
+8Or he that exhorteth, on exhortation: he that giveth, let him do it with simplicity; he that ruleth, with diligence; he that sheweth mercy, with cheerfulness.
+
+1 Corinthians 12:28–30 (KJV 1900)
+28And God hath set some in the church, first apostles, secondarily prophets, thirdly teachers, after that miracles, then gifts of healings, helps, governments, diversities of tongues.
+29Are all apostles? are all prophets? are all teachers? are all workers of miracles?
+30Have all the gifts of healing? do all speak with tongues? do all interpret?
+
 ## Building

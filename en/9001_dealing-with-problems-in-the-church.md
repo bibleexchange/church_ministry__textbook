@@ -6,6 +6,13 @@ Circumcision of Gentiles and the Jerusalem meeting.
 
 ---
 
+1 Timothy 5:19–20 (KJV 1900)
+19Against an elder receive not an accusation, but before two or three witnesses.
+20Them that sin rebuke before all, that others also may fear.
+
+1 Timothy 5:22 (KJV 1900)
+22Lay hands suddenly on no man, neither be partaker of other men’s sins: keep thyself pure.
+
 Jesus on dealing with someone who you think is doing wrong.
 
 The log in your eye.

@@ -1,7 +1,19 @@
 # Delegation of authority and training others
 
+Acts 14:23 (KJV 1900)
+23And when they had ordained them elders in every church, and had prayed with fasting, they commended them to the Lord, on whom they believed.
+
 2 Timothy 2:2 (KJV 1900)
 2And the things that thou hast heard of me among many witnesses, the same commit thou to faithful men, who shall be able to teach others also.
+
+1 Timothy 4:14 (KJV 1900)
+14Neglect not the gift that is in thee, which was given thee by prophecy, with the laying on of the hands of the presbytery.
+
+2 Timothy 2:2 (KJV 1900)
+2And the things that thou hast heard of me among many witnesses, the same commit thou to faithful men, who shall be able to teach others also.
+
+1 Timothy 3:10 (TNIV)
+10They must first be tested; and then if there is nothing against them, let them serve as deacons.
 
 ## Jesus and the 12 and 70
 
@@ -37,4 +49,12 @@ Obey your leaders and submit to them, for they are keeping watch over your souls
 
 >12Now we ask you, brothers and sisters, to acknowledge those who work hard among you, who care for you in the Lord and who admonish you.
 > 13Hold them in the highest regard in love because of their work. Live in peace with each other.
-> The Holy Bible: Today’s New International Version. (1 Th 5:12–13). (2005). Zondervan.-->
+> The Holy Bible: Today’s New International Version. (1 Th 5:12–13). (2005). Zondervan.
+
+1 Timothy 5:1–2 (KJV 1900)
+1Rebuke not an elder, but intreat him as a father; and the younger men as brethren;
+2The elder women as mothers; the younger as sisters, with all purity.
+
+1 Peter 5:5 (KJV 1900)
+5Likewise, ye younger, submit yourselves unto the elder. Yea, all of you be subject one to another, and be clothed with humility: for God resisteth the proud, and giveth grace to the humble.
+-->

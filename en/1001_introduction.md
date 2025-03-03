@@ -43,6 +43,21 @@ A leader cares for the needs of others. The command is given two times in the Ne
 
 Jesus is our example as the good shepherd who lays down His life for the sheep (John 10:11). Not everyone that is a leader in the church really cares for the people. Some will run away when things get difficult and leave the people to be scattered by the enemy (John 10:12-13).
 
+<!--Need to expound on this more, since it very specifically talks about protecting from false doctrine:
+
+Acts 20:28–31 (KJV 1900)
+28Take heed therefore unto yourselves, and to all the flock, over the which the Holy Ghost hath made you overseers, to feed the church of God, which he hath purchased with his own blood.
+29For I know this, that after my departing shall grievous wolves enter in among you, not sparing the flock.
+30Also of your own selves shall men arise, speaking perverse things, to draw away disciples after them.
+31Therefore watch, and remember, that by the space of three years I ceased not to warn every one night and day with tears.
+-->
+
+<!--Titus 1:9–11 (KJV 1900)
+9Holding fast the faithful word as he hath been taught, that he may be able by sound doctrine both to exhort and to convince the gainsayers.
+10For there are many unruly and vain talkers and deceivers, specially they of the circumcision:
+11Whose mouths must be stopped, who subvert whole houses, teaching things which they ought not, for filthy lucre’s sake.
+-->
+
 #### The shepherd takes care of spiritual needs
 
 The leaders in the church should make sure that the people understand the Word of God and pray for them when they have trouble in life.
@@ -53,6 +68,11 @@ The leaders in the church should make sure that the people understand the Word o
 
 > Colossians 1:28  
 > Whom we preach, warning every man, and teaching every man in all wisdom; that we may present every man perfect in Christ Jesus:
+
+<!--Titus 1:9 (KJV 1900)
+9Holding fast the faithful word as he hath been taught, that he may be able by sound doctrine both to exhort and to convince the gainsayers.
+
+He must protect against false doctrine-->
 
 #### The shepherd takes care of physical needs
 
