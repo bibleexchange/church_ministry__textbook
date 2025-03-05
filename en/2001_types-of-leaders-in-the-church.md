@@ -25,6 +25,16 @@ Many of the words used by the church for leaders were words already commonly use
 <!--What seems to be clear from the two relevant letters to coworkers is that neither Timothy nor Titus exercises a local church role. Timothy appears to relate to the single Ephesian church in the capacity of apostolic delegate (1:3). Titus, however, in the same capacity appears to be in charge of at least several churches associated with Cretan towns (Titus 1:5).
 Towner, P. H. (2006). The Letters to Timothy and Titus (p. 242). Wm. B. Eerdmans Publishing Co.-->
 
+<!--In the Corinthian church, along with the more ecstatic gifts are the gifts of being helpers (ἀντιλήμψεις) and administrators (κυβερνήσεις; 1 Cor 12:28).
+Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 162). Word, Incorporated.
+
+Need to research this, since KJV completely translates these positions differently.-->
+
+<!--Nowhere are any of these titles applied to Timothy. Paul’s admonition to Timothy as the “Lord’s servant” (2 Tim 2:24–25) lists qualities that are similar to those listed for overseers and deacons, but it says nothing about Timothy being an overseer. He stands outside the local church structure as Paul’s delegate with the authority to enforce Paul’s decisions
+Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 162). Word, Incorporated.
+
+The Greek word for servant is doulos-->
+
 ## Coworker
 
 The term most frequently used by Paul to describe specific individuals is "co-worker," which occurs twelve times in his writing (Rom. 16:3, 9, 21; I Cor. 3:9; II Cor. 1:24; 8:23; Phil. 2:25; 4:3; Col. 4:11; I Thess. 3:2; Phlm. 1, 24).<sup>[2]</sup>
@@ -122,6 +132,11 @@ Some people think that overseers and deacons were the same thing, but Philippian
 28Take heed therefore unto yourselves, and to all the flock, over the which the Holy Ghost hath made you overseers, to feed the church of God, which he hath purchased with his own blood.
 -->
 
+<!--Jesus is the overseer of our souls:
+1 Peter 2:25 (KJV 1900)
+25For ye were as sheep going astray; but are now returned unto the Shepherd and Bishop of your souls.
+-->
+
 ### Ignatius on church hierarchy
 
 By the time of Ignatius in the second century (107 AD), there was one "head" bishop for each city. These were over the elders, who were over the deacons.<sup>[6]</sup> Ignatius taught that the the bishop spoke directly for God and that to disobey the bishop was to disobey God.
@@ -173,6 +188,10 @@ In the 2nd and 3rd epistles of John, John calls himself an elder and Peter also 
 The elders were to pray for people in the church that were sick (James 5:14).
 
 <!--Talk about the body of elders-->
+<!--The word was used for leaders of the Jews before it was used by the church (Matt. 21:23; Acts 4:5)-->
+<!--Elders are paired often with Apostles in the book of Acts (Acts 15:2, 4, 6, 22, 23; 16:4)-->
+<!--The titles of overseer and elder are used interchangeably. Paul instructs Titus concerning elders (Titus 1:5) and then in the next breath calls them overseers (Titus 1:7) with no indication that the audience has changed. That the list of qualities in Titus 1 so closely parallels that of the overseers in 1 Tim 3:1–7 suggests that the two terms refer to the same office. This same interchangability is found in Acts 20 where Paul calls the Ephesian elders (v 17) and tells them that as overseers (v 28) they should take care of the church.
+Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 162). Word, Incorporated.-->
 
 ---
 

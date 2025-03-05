@@ -9,6 +9,8 @@ The process of some people being chosen as leaders:
 - Jesus calling the disciples
 - The caul of Paul: was first taught, vision, submitted to others for baptism, learned in the wilderness
 
+We have lists of characteristics that are good for overseers, deacons, and elders. While these lists are good for us to understand what Paul was looking for in a good leader, we have to remember them in their original setting. These are letters written to specific people for a reason. In part, Paul was writing to Timothy and Titus to try to stop false teachers that were causing problems in the church. (ADD REFERENCE) These were things that were opposite of what the false teachers were doing. We should not think that these are complete lists of what makes a good leader. Nor should we think these are all absolutes, especially the requirements to be the husband of one wife or have a household to manage, since Paul himself was not married and thus did not have a household.
+
 ## Character
 
 All preachers can say they are called of God, but how do we know if they will really be a good leader in the church? We already said before that what makes a good leader in worldly things is not what will make a good leader in spiritual things.
