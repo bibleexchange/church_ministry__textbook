@@ -2,7 +2,7 @@
 
 Today we have the idea of one leader in the church, the pastor, who is responsible for all decisions in the church and who cares for both spiritual and physical needs of the church. There is indication from Scripture that in the early church there was not a singular leader, but different leaders who each had different responsibilities. Some taught and preached while others took care of physical things. There is no indication from Scripture that one position was more important than others or that one person had more power than others.
 
-The New Testament gives qualifications for some positions of leadership, but it does not describe what those positions were and what they were supposed to do. We have two lists of types of leaders that have different titles in them. I Timothy 3:1-13 lists overseers and deacons and Ephesians 4:11 lists apostle, prophet, evangelist, pastor, and teacher. In I Corinthians 12:28 we have a list that shares three of the titles from Ephesians 4:11 (apostles, prophets, and teachers). We can say that the list in Ephesians are people appointed by God for the good of the church and the list in I Timothy are leaders appointed by humans in the church. There can be overlap between these two lists. Someone can be both a pastor and an overseer and another person may be a pastor but not an overseer. The Didache, which was an early document used by the church, makes this clear by saying that people who are overseers or deacons do the ministry of prophets and teachers:
+The New Testament gives qualifications for some positions of leadership, but it does not describe what those positions were and what they were supposed to do. We have two lists of types of leaders that have different titles in them. I Timothy 3:1-13 lists overseers and deacons, and Ephesians 4:11 lists apostle, prophet, evangelist, pastor, and teacher. In I Corinthians 12:28 we have a list that shares three of the titles from Ephesians 4:11 (apostles, prophets, and teachers). We can say that the list in Ephesians are people appointed by God for the good of the church and the list in I Timothy are leaders appointed by humans in the church. There can be overlap between these two lists. Someone can be both a pastor and an overseer and another person may be a pastor but not an overseer. The Didache, which was an early document used by the church, makes this clear by saying that people who are overseers or deacons do the ministry of prophets and teachers:
 
 > Didache 15:1  
 > Elect, therefore, for yourselves overseers and deacons worthy of the Lord, men who are meek and not covetous, and true and approved, for they perform for you the service of prophets and teachers.<sup>[1]</sup>
@@ -67,7 +67,7 @@ These are the people who are called apostles in the New Testament:
 - Paul (Rom. 1:1)
 - Barnabas (Acts 14:14)
 - James the Lord’s brother (Gal. 1:19)
-- Silas (1 Thess. 2:6)
+- Matthias (Acts 1:26)
 - Junias and Andronicus (Romans 16:7)
 - Unnamed apostles (1 Cor. 15:7)
 

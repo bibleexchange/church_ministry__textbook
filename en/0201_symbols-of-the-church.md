@@ -1,5 +1,7 @@
 # Symbols of the church
 
+Before we talk more about the leaders of the church, we need to make sure we understand what the church is.
+
 We do not have any place in the New Testament that explains exactly what the church is and how it is supposed to function. What we do have are symbols that help us understand what the church is supposed to be.
 
 ## The body
@@ -16,7 +18,7 @@ The priesthood of all believers (1 Peter 2:9).
 
 ### Members of the body of Christ
 
-#### No jealousy of other workers
+### No jealousy of other workers
 
 > 1 Co 3:3–11 (TNIV)
 > 3You are still worldly. For since there is jealousy and quarreling among you, are you not worldly? Are you not acting like mere human beings? 4For when one says, “I follow Paul,” and another, “I follow Apollos,” are you not mere human beings?
@@ -26,7 +28,7 @@ The priesthood of all believers (1 Peter 2:9).
 > 1 Co 3:21–23 (TNIV)
 > 21 So then, no more boasting about human leaders! All things are yours, 22whether Paul or Apollos or Cephas or the world or life or death or the present or the future—all are yours, 23and you are of Christ, and Christ is of God.
 
-#### Different types of work in the church
+### Different types of work in the church
 
 > Acts 6:1-6  
 > 6 And in those days, when the number of the disciples was multiplied, there arose a murmuring of the Grecians against the Hebrews, because their widows were neglected in the daily ministration.
@@ -40,7 +42,7 @@ Even though Stephen was chosen to serve tables, that did not mean that he was of
 
 > Acts 6:8 And Stephen, full of faith and power, did great wonders and miracles among the people.
 
-#### Different spiritual gifts
+### Different spiritual gifts
 
 Romans 12:5–8 (KJV 1900)
 5So we, being many, are one body in Christ, and every one members one of another.
@@ -60,3 +62,5 @@ Even though many times we talk about the building as being the church, the churc
 We are the temple of the Holy Spirit.
 
 Thus, a symbol of the church is that we are all bricks in a building.
+
+## Bride of Christ

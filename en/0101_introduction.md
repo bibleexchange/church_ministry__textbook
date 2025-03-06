@@ -37,7 +37,7 @@ We call leaders in the church "servants" of God, but many times they are not rea
 
 ### A leader is to be a shepherd
 
-We are not here specifically talking about the position of pastor in the church, but all leaders in the church, no matter what their title is, is supposed to take care of the people in the church. We will talk more in the next chapter about the official title of pastor in the church.
+We are not here specifically talking about the position of pastor in the church, but all leaders in the church, no matter what their title is, is supposed to take care of the people in the church. We will talk more in a later chapter about the official title of "pastor" in the church.
 
 A leader cares for the needs of others. The command is given two times in the New Testament for the leaders of the church to be shepherds of the flock of God (1 Peter 5:1-4; Acts 20:28). Jesus also told Peter to feed His sheep (John 21:15). The shepherd is one who takes care of all needs of the sheep, including making sure they have food and water and protecting them (Psalm 23).
 
@@ -62,7 +62,7 @@ Acts 20:28–31 (KJV 1900)
 
 The leaders in the church should make sure that the people understand the Word of God and pray for them when they have trouble in life.
 
-1. Jesus went to all the villages teaching and preaching
+1. Jesus went to all the villages teaching and preaching (Matt. 9:35; Mark 1:38-39)
 2. Paul was a teacher (I Tim. 2:7; II Tim. 1:11)
 3. The overseer is to be able to teach (I Tim. 3:2)
 

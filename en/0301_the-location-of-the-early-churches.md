@@ -18,4 +18,5 @@ Talk about the household codes.
 The temple is referred to as the people of God and not a building.
 
 <!--Ekklesia as a word used in civic government.-->
+
 <!--Transition from Synagogues-->
