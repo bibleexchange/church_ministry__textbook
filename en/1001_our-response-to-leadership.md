@@ -1,4 +1,6 @@
-not sure where this should go. Could be a section on our response to leadership. Add some general thoughts about secular leaders from Romans 13.
+# Our response to leadership
+
+Add some general thoughts about secular leaders from Romans 13.
 
 What to do when you are not the leader.
 
