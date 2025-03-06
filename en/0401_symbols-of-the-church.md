@@ -54,3 +54,9 @@ Romans 12:5–8 (KJV 1900)
 30Have all the gifts of healing? do all speak with tongues? do all interpret?
 
 ## Building
+
+Even though many times we talk about the building as being the church, the church is people and not a building.
+
+We are the temple of the Holy Spirit.
+
+Thus, a symbol of the church is that we are all bricks in a building.

@@ -137,6 +137,15 @@ Some people think that overseers and deacons were the same thing, but Philippian
 25For ye were as sheep going astray; but are now returned unto the Shepherd and Bishop of your souls.
 -->
 
+<!--Talk about the origins of the title in civic and/or business life:
+
+> Its adoption came about in a natural way. Just as senatus, γερουσία and πρεσβύτερος passed into official designations through the natural association of authority with age, so ἐπίσκοπος would be, almost inevitably, the designation of a superintendent. This process of natural selection was probably aided by the familiar use of the title in the clubs and guilds to designate functions analogous to those of the ecclesiastical administrator.
+> Vincent, M. R. (1887). Word studies in the New Testament (Vol. 4, p. 227). Charles Scribner’s Sons.
+
+>Kelly points out that a close parallel to the office of overseer in the PE is seen in Qumran, where the overseer (me˒baqqēr) was responsible for “commanding, examining, instructing, receiving alms or accusations dealing with the peoples’ sins, and generally shepherding them”
+> Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 165). Word, Incorporated.
+-->
+
 ### Ignatius on church hierarchy
 
 By the time of Ignatius in the second century (107 AD), there was one "head" bishop for each city. These were over the elders, who were over the deacons.<sup>[6]</sup> Ignatius taught that the the bishop spoke directly for God and that to disobey the bishop was to disobey God.
@@ -192,6 +201,10 @@ The elders were to pray for people in the church that were sick (James 5:14).
 <!--Elders are paired often with Apostles in the book of Acts (Acts 15:2, 4, 6, 22, 23; 16:4)-->
 <!--The titles of overseer and elder are used interchangeably. Paul instructs Titus concerning elders (Titus 1:5) and then in the next breath calls them overseers (Titus 1:7) with no indication that the audience has changed. That the list of qualities in Titus 1 so closely parallels that of the overseers in 1 Tim 3:1–7 suggests that the two terms refer to the same office. This same interchangability is found in Acts 20 where Paul calls the Ephesian elders (v 17) and tells them that as overseers (v 28) they should take care of the church.
 Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 162). Word, Incorporated.-->
+
+<!--## Widow
+
+-->
 
 ---
 

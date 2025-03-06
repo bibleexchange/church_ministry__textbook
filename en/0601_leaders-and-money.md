@@ -1,8 +1,8 @@
 # Leaders and money
 
-### What is the purpose of offerings in the N.T. church?
+## What is the purpose of offerings in the New Testament church?
 
-#### It does not matter the amount of the offering, but the heart
+### It does not matter the amount of the offering, but the heart
 
 > Mark 12:41-44
 > 41 And Jesus sat over against the treasury, and beheld how the people cast money into the treasury: and many that were rich cast in much.
@@ -23,7 +23,7 @@ If our heart is not right, we should take care of that first before bringing an 
 > 23 Therefore if thou bring thy gift to the altar, and there rememberest that thy brother hath ought against thee;
 > 24 Leave there thy gift before the altar, and go thy way; first be reconciled to thy brother, and then come and offer thy gift.
 
-#### Give with no expect of return
+### Give with no expect of return
 
 We give offerings as thanks to what God has already done for us (2 Cor. 9:12).
 
@@ -45,7 +45,7 @@ We give to find spiritual blessings:
 
 We cannot buy spiritual things (Acts 8:9, 13, 18-20).
 
-#### We give to God and not so man can see
+### We give to God and not so man can see
 
 > Matthew 6:1-4
 > 1 Take heed that ye do not your alms before men, to be seen of them: otherwise ye have no reward of your Father which is in heaven.
@@ -53,7 +53,7 @@ We cannot buy spiritual things (Acts 8:9, 13, 18-20).
 > 3 But when thou doest alms, let not thy left hand know what thy right hand doeth:
 > 4 That thine alms may be in secret: and thy Father which seeth in secret himself shall reward thee openly.
 
-#### The offerings were for the poor
+### The offerings were for the poor
 
 > Galatians 2:9–10 (TNIV)
 > 9 James, Cephas and John, those esteemed as pillars, gave me and Barnabas the right hand of fellowship when they recognized the grace given to me. They agreed that we should go to the Gentiles, and they to the Jews.
@@ -88,7 +88,7 @@ Luke 3:11
 Acts 11:29-30
 "The disciples, as each one was able, decided to provide help for the brothers and sisters living in Judea. This they did, sending their gift to the elders by Barnabas and Saul."-->
 
-### Should pastors get money for their work?
+## Should pastors get money for their work?
 
 Galatians 6:6 (TNIV)
 6Nevertheless, those who receive instruction in the word should share all good things with their instructor.
@@ -174,7 +174,17 @@ Leaders should not be looking for money:
 Titus 1:7 (KJV 1900)
 7For a bishop must be blameless, as the steward of God; not selfwilled, not soon angry, not given to wine, no striker, not given to filthy lucre;
 
-### Church leaders should be willing to work with their hands
+Didache 12:
+
+> 1 LET everyone who “comes in the Name of the Lord” be received; but when you have tested him you shall know him, for you shall have understanding of true and false. 2 If he who comes is a traveller, help him as much as you can, but he shall not remain with you more than two days, or, if need be, three. 3 And if he wishes to settle among you and has a craft, let him work for his bread. 4 But if he has no craft provide for him according to your understanding, so that no man shall live among you in idleness because he is a Christian. 5 But if he will not do so, he is making traffic of Christ; beware of such.
+> Clement I, P., Ignatius, S., Bishop of Antioch, Polycarp, S., Bishop of Smyrna, & Lake, K. (1912–1913). The Apostolic fathers (K. Lake, Ed.; Vol. 1, p. 329). Harvard University Press
+
+Didache 13:
+
+> 1 BUT every true prophet who wishes to settle among you is “worthy of his food.” 2 Likewise a true teacher is himself worthy, like the workman, of his food. 3 Therefore thou shalt take the firstfruit of the produce of the winepress and of the threshing-floor and of oxen and sheep, and shalt give them as the firstfruits to the prophets, for they are your high priests. 4 But if you have not a prophet, give to the poor. 5 If thou makest bread, take the firstfruits, and give it according to the commandment. 6 Likewise when thou openest a jar of wine or oil, give the firstfruits to the prophets. 7 Of money also and clothes, and of all your possessions, take the firstfruits, as it seem best to you, and give according to the commandment.
+> Clement I, P., Ignatius, S., Bishop of Antioch, Polycarp, S., Bishop of Smyrna, & Lake, K. (1912–1913). The Apostolic fathers (K. Lake, Ed.; Vol. 1, p. 329). Harvard University Press.
+
+## Church leaders should be willing to work with their hands
 
 > For Paul’s manual labour, cf. 1 Cor. 4:12; 9:6; 1 Thess. 2:9; 2 Thess. 3:8; for his Christian ministry, cf. 1 Cor. 9:1; 15:10; Gal. 4:11; Phil. 1:22; 2:16; Col. 1:29; 1 Tim. 4:10; for the manual labour of others, cf. 1 Thess. 4:11; 2 Thess. 3:10–12; and, for the Christian ministry of others, cf. Rom. 16:6, 12; 1 Cor. 15:58; 16:10, 16; 2 Cor. 11:13, 15; Gal. 6:1; Eph. 4:12; Col. 3:23; 4:13 1 Thess. 1:3; 5:12–13; 1 Tim. 3:1; 5:10, 17–18; 2 Tim. 2:15, 21.  
 > Clarke, A. D. (2012). A Pauline Theology of Church Leadership (M. Goodacre, Ed.; Vol. 362). Bloomsbury.

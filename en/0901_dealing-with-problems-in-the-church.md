@@ -20,3 +20,5 @@ The log in your eye.
 Paul in Romans on dealing with differences.
 
 Being a follower of Paul or Apollos or Cephas.
+
+What about so many divisions in the church? Should we always start new churches or can we join with others?
