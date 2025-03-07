@@ -82,7 +82,7 @@ A prophet is one who speaks as a direct messenger for God. Here are some prophet
 - Barnabas, Simeon Niger, Lucius of Cyrene, and Manaen (Acts 13:1-3)
 - Judas (Acts 15:32)
 - Silas (Acts 15:32)
-- Seven daughters of Philip (Acts 21:8-9)
+- Four daughters of Philip (Acts 21:8-9)
 - Agabus (Acts 21:10)
 
 The Shepherd of Hermas, which was a document used by the early church, tells how to know if a prophet is real or not:

@@ -55,32 +55,26 @@ Leo hatuwezi kuwa mitume katika hisia za shahidi katika ufufuko wa Yesu, lakini 
 
 ## Nabii
 
-A prophet is one who speaks as a direct messenger for God. Here are some prophets in the New Testament:
-Mtume ni yule anayezungumza kama mjumbe wa Mungu moja kwa moja.Hawa ni baadhi ya manabii katika agano jipya:
+Nabii ni yule anayezungumza kama mjumbe wa Mungu moja kwa moja. Hawa ni baadhi ya manabii katika Agano Jipya:
 
-- Barnabas, Simeon Niger, Lucius of Cyrene, and Manaen (Acts 13:1-3)
-  -Barnaba,Simoni aitwaye Nigeri,Lukio Mkirene na Manaeni(Mdo 13:1-3)
-- Judas (Acts 15:32)
-  Yuda(Mdo 15:32)
-- Silas (Acts 15:32)
-  Sila(Mdo 15:32)
-- Seven daughters of Philip (Acts 21:8-9)
-  -Watoto wa kike saba wa Philipo(Mdo 21:8-9)
-- Agabus (Acts 21:10)
-  -Agabo(Mdo 21:10)
+- Barnaba, Simoni aitwaye Nigeri, Lukio Mkirene na Manaeni (Mdo. 13:1-3)
+- Yuda (Mdo. 15:32)
+- Sila (Mdo. 15:32)
+- Watoto wa kike nne wa Philipo (Mdo. 21:8-9)
+- Agabo (Mdo. 21:10)
 
 The Shepherd of Hermas, which was a document used by the early church, tells how to know if a prophet is real or not:
-Mchungaji wa Hamasi
+
+Mchungaji wa Hamasi <!--missing-->
 
 > Shepherd of Hermas, Mandate 11:7-8
 > Mchungaji wa Hamasi,……………………………  
 > "How, then," said I, "sir, shall a man know which of them is a true prophet and which a false prophet?" "Listen," said he, "concerning both the prophets, and as I shall tell you, so you shall judge the true prophet and the false prophet. Test the man who has the Divine Spirit by his life. In the first place, he who has the spirit which is from above, is meek and gentle, and lowly-minded, and refrains from all wickedness and evil desire of this world, and make himself poorer than all men, and gives no answers to anyone when he is consulted, nor does he speak by himself (for the Holy Spirit does not speak when a man wishes to speak), but he speaks at that time when God wishes him to speak.
-> Kwa namna gani,halafu,nikasema mimi,Bwana je mtu anaweza kumjua nabii wa kweli na nabii wa uongo?" "Sikiliza akasema,kuhusiana na manabii wote,na kama nitakavyokuambia,hivyo unaweza kumjua nabii wa kweli na wa uongo.Utamjua mtu mwenye roho ya Mungu kwa maisha yake.Kwa upande mmoja yeye aliye na roho itokayo juu ni mpole na muungwana,mnyenyekevu na hujilinda na maovu yote na matamanio ya uasi wa ulimwengu huu na hujifanya masikini kuliko watu wote,na hajibu chochote anapokabiliwa wala haongei peke yake(kwani Roho Mtakatifu mtu anapotamani kuongea),balikatika wakati ambao Mungu anatamani yeye azungumze.
+> Kwa namna gani,halafu,nikasema mimi,Bwana je mtu anaweza kumjua nabii wa kweli na nabii wa uongo?" "Sikiliza akasema,kuhusiana na manabii wote, na kama nitakavyokuambia, hivyo unaweza kumjua nabii wa kweli na wa uongo. Utamjua mtu mwenye roho ya Mungu kwa maisha yake. Kwa upande mmoja yeye aliye na roho itokayo juu ni mpole na muungwana, mnyenyekevu na hujilinda na maovu yote na matamanio ya uasi wa ulimwengu huu na hujifanya masikini kuliko watu wote, na hajibu chochote anapokabiliwa wala haongei peke yake (kwani Roho Mtakatifu mtu anapotamani kuongea), balikatika wakati ambao Mungu anatamani yeye azungumze.
 
 ## Wainjilisti
 
-The meaning of Greek word is "to announce news."
-Maana ya neno la Kigiriki ni "kutangaza habari"
+Maana ya neno la Kigiriki ni "kutangaza habari."
 
 Philip was an evangelist (Acts 21:8). (In the SUV it is just translated as "preacher of the Gospel.) Evangelists went to new places to convert people to Christianity and to start new churches. But they also had some aspect of ministry in the church, because Paul told Timothy, who was a leader in the church, to do the work of an evangelist (2 Tim. 4:5).
 Philipo alikuwa mwinjilisti( Mdo 21:8).(Katika SUV inatafsiriwa kama "mhubiri wa injili.)Wainjilisti walikwenda maeneo mapya kuwabadilisha watu kuwa wakristo na kuanzisha makanisa mapya.Lakini pia walikuwa na vipengele vya huduma katika kanisa,kwasababu Paulo alimwambia Timotheo ambaye alikuwa kiongozi katika kanisa kufanya kazi ya uinjilisti (2 Tim. 4:5).
