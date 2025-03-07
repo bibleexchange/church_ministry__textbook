@@ -3,6 +3,7 @@
 <!-- It would be good to list Tanzanian churches that follow each of these structures-->
 <!--bullet points for each to show main characteristics. Compare to other types of polity so that the differences are understood.-->
 <!--There is some inconsistency and overlap in these. Some church might be mostly presbyterian, but have bishops (not with apostolic succession) that step in (and maybe overstep) and push certain issues or agendas or try to "fix" problems-->
+<!--Should use Scriptures that each use to justify their position-->
 
 TAG:
 An image of hierarchy at https://www.tag.or.tz/site/organization_structure

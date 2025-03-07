@@ -1,66 +1,70 @@
 # Symbols of the church
 
-Before we talk more about the leaders of the church, we need to make sure we understand what the church is.
+Before we talk more about the leaders of the church, we need to make sure we understand what the church is. We do not have any place in the New Testament that explains exactly what the church is and how it is supposed to function day to day. What we do have are symbols that help us understand what the church is supposed to be. "What is immediately evident in these images for the church is that they all emphasize the communal aspect of Christian faith and life. This communal emphasis stands in contrast to the individualistic approach of so many of the expressions of Christianity in the modern Western world."<sup>[1]</sup>
 
-We do not have any place in the New Testament that explains exactly what the church is and how it is supposed to function. What we do have are symbols that help us understand what the church is supposed to be.
+## The body (1 Cor. 12:12-27; Rom. 12:4-5)
 
-## The body
+In the church, there is not one human leader who is more important than all other people in the church. The head of the body is not a human, but Jesus (Col. 1:18; Eph. 1:22-23; 5:23, 30). All members of the church, including pastors, bishops, and deacons, make up the body (Col. 1:24).
 
-In the church, there is not one human leader who is more important than all other people in the church. In the New Testament, we do not have a description of exactly what the day to day operation of the church was meant to be. What we do have is symbols or comparisons to things in the natural world.
+### We are members of the body of Christ
 
-One of these symbols is the body.
+All members of the body are important (1 Cor. 12:21-25). We don't use every part of the body at all times, but through the day, every part of the body is used, even if we do not think about it.
 
-Each member in the church has a different role to do.
+1 Peter 2:9 teaches us that all believers are part of the priesthood of Christ. There are some people in the church who will have gifts for leading and administration, but that does not mean that they are more spiritual or essential to the church.
 
-The head of the body is not a human, but Jesus.
+All members of the church should be closely joined together and work well together (Eph. 4:15-16).
 
-The priesthood of all believers (1 Peter 2:9).
+### Each member has a different work or gift
 
-### Members of the body of Christ
+Each member in the church has a different role to do that cannot be done by someone else, just as the hand cannot do the work of the foot, and nor can the foot do the work of the hand. We have two lists of gifts given in the New Testament:
 
-### No jealousy of other workers
+1. Romans 12:6–8: prophecy, ministry, teaching, exhortation, giving, ruling, and showing mercy.
+2. 1 Corinthians 12:28: apostles, prophets, teachers, miracles, healings, helps, governments, and diversities of tongues.
 
-> 1 Co 3:3–11 (TNIV)
-> 3You are still worldly. For since there is jealousy and quarreling among you, are you not worldly? Are you not acting like mere human beings? 4For when one says, “I follow Paul,” and another, “I follow Apollos,” are you not mere human beings?
-> 5What, after all, is Apollos? And what is Paul? Only servants, through whom you came to believe—as the Lord has assigned to each his task. 6 I planted the seed, Apollos watered it, but God has been making it grow. 7So neither the one who plants nor the one who waters is anything, but only God, who makes things grow. 8The one who plants and the one who waters have one purpose, and they will each be rewarded according to their own labor. 9For we are God’s co-workers; you are God’s field, God’s building.
-> 10By the grace God has given me, I laid a foundation as a wise builder, and someone else is building on it. But each one should build with care. 11For no one can lay any foundation other than the one already laid, which is Jesus Christ.
+We see that these lists have different gifts in them, but both have prophecy and teaching. We should not take these to be complete lists of gifts that God can give, but just some examples of gifts.
 
-> 1 Co 3:21–23 (TNIV)
-> 21 So then, no more boasting about human leaders! All things are yours, 22whether Paul or Apollos or Cephas or the world or life or death or the present or the future—all are yours, 23and you are of Christ, and Christ is of God.
+#### Each member will have different gifts
 
-### Different types of work in the church
+1 Corinthians 12:29–30 makes it clear that some of these gifts will be given to someone, but not all of them. God will not give all the gifts of the spirit to one person, since that would mean that they would be proud and would not depend on other members of the church. Our limitations become our strengths when we learn to work together with people who have different strengths than we have.
 
-> Acts 6:1-6  
-> 6 And in those days, when the number of the disciples was multiplied, there arose a murmuring of the Grecians against the Hebrews, because their widows were neglected in the daily ministration.
-> 2 Then the twelve called the multitude of the disciples unto them, and said, It is not reason that we should leave the word of God, and serve tables.
-> 3 Wherefore, brethren, look ye out among you seven men of honest report, full of the Holy Ghost and wisdom, whom we may appoint over this business.
-> 4 But we will give ourselves continually to prayer, and to the ministry of the word.
-> 5 And the saying pleased the whole multitude: and they chose Stephen, a man full of faith and of the Holy Ghost, and Philip, and Prochorus, and Nicanor, and Timon, and Parmenas, and Nicolas a proselyte of Antioch:
-> 6 Whom they set before the apostles: and when they had prayed, they laid their hands on them.
+#### An example of the gifts being used in the church
 
-Even though Stephen was chosen to serve tables, that did not mean that he was of little spiritual power:
+An example of how these different gifts work in the church can be found in Acts 6:1-6. The apostles were feeding the widows every day, but they said that they had to stop, so that they could focus on prayer and ministry of the word. They chose seven men to do the work of feeding the widows. These men were "full of the Holy Ghost and wisdom." They were not less important than the apostles, but they had a different work to do.
 
-> Acts 6:8 And Stephen, full of faith and power, did great wonders and miracles among the people.
+Later, Stephen "did great wonders and miracles among the people" (Acts 6:8) and was killed because he was preaching about Jesus. Philip went to Samaria and preached the Gospel, healed the sick, and cast out demons (Acts 8:5-13). Both of these men had great spiritual power, but were humble enough to serve tables.
 
-### Different spiritual gifts
+## Temple/Building
 
-Romans 12:5–8 (KJV 1900)
-5So we, being many, are one body in Christ, and every one members one of another.
-6Having then gifts differing according to the grace that is given to us, whether prophecy, let us prophesy according to the proportion of faith;
-7Or ministry, let us wait on our ministering: or he that teacheth, on teaching;
-8Or he that exhorteth, on exhortation: he that giveth, let him do it with simplicity; he that ruleth, with diligence; he that sheweth mercy, with cheerfulness.
+Even though many times we talk about the building as being the church, the church is people and not a building. We are the temple of the Holy Spirit. The church building is not the "house of God," but we are the house of God. Thus, a symbol of the church is that we are all bricks in a building:
 
-1 Corinthians 12:28–30 (KJV 1900)
-28And God hath set some in the church, first apostles, secondarily prophets, thirdly teachers, after that miracles, then gifts of healings, helps, governments, diversities of tongues.
-29Are all apostles? are all prophets? are all teachers? are all workers of miracles?
-30Have all the gifts of healing? do all speak with tongues? do all interpret?
+- "You are God's field, God's building" (1 Cor. 3:9)
+- "You yourselves like living stones are being built up as a spiritual house" (1 Pet. 2:5)
+- "Built on the foundation of the apostles and prophets" (Eph. 2:20-22)
+- "The church of the living God, the pillar and foundation of the truth" (1 Tim. 3:15)
 
-## Building
+Christ is the cornerstone (Matt. 21:42; Mark 12:10-11; Luke 20:17; Acts 4:11; Eph. 2:19-20; 1 Pet. 2:6-7).
 
-Even though many times we talk about the building as being the church, the church is people and not a building.
+## Flock/Sheep (John 10:1-16, Acts 20:28-29, 1 Pet. 5:2-4)
 
-We are the temple of the Holy Spirit.
+Jesus is the shepherd, and his people are the flock.
 
-Thus, a symbol of the church is that we are all bricks in a building.
+## Family/Household
 
-## Bride of Christ
+- "The household of God, which is the church" (1 Tim. 3:15)
+- Believers as "members of the household of God" (Eph. 2:19)
+
+## Branches (John 15:1-8)
+
+In Romans 11:17-24, Paul uses the metaphor of an olive tree to describe God's people.
+
+## Field/Harvest
+
+The church is portrayed as God's field (1 Cor. 3:9) and workers in his harvest (Matt. 9:37-38).
+
+## Bride of Christ (Eph. 5:25-32; Rev. 19:7-9, 21:2)
+
+Of all the symbols, this is the only one that is singular instead of being a composite or group.
+
+---
+
+- [1] Ferguson, Everett. The Early Church at Work and Worship - Volume 1: Ministry, Ordination, Covenant, and Canon (p. 2). (Function). Kindle Edition.
