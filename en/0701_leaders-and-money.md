@@ -43,7 +43,7 @@ We give to find spiritual blessings:
 > 18 That they do good, that they be rich in good works, ready to distribute, willing to communicate;
 > 19 Laying up in store for themselves a good foundation against the time to come, that they may lay hold on eternal life.
 
-We cannot buy spiritual things (Acts 8:9, 13, 18-20).
+While God may give us spiritual blessings, we are not buying them with our offerings. We cannot buy spiritual things (Acts 8:9, 13, 18-20).
 
 ### We give to God and not so man can see
 
@@ -52,6 +52,9 @@ We cannot buy spiritual things (Acts 8:9, 13, 18-20).
 > 2 Therefore when thou doest thine alms, do not sound a trumpet before thee, as the hypocrites do in the synagogues and in the streets, that they may have glory of men. Verily I say unto you, They have their reward.
 > 3 But when thou doest alms, let not thy left hand know what thy right hand doeth:
 > 4 That thine alms may be in secret: and thy Father which seeth in secret himself shall reward thee openly.
+
+2 Corinthians 9:7 (ESV)
+"Each of you should give what you have decided in your heart to give, not reluctantly or under compulsion, for God loves a cheerful giver."
 
 ### The offerings were for the poor
 
@@ -87,6 +90,16 @@ Luke 3:11
 
 Acts 11:29-30
 "The disciples, as each one was able, decided to provide help for the brothers and sisters living in Judea. This they did, sending their gift to the elders by Barnabas and Saul."-->
+
+God blesses us so we can give to others:
+
+2 Corinthians 9:10-11 (ESV)
+"Now he who supplies seed to the sower and bread for food will also supply and increase your store of seed and will enlarge the harvest of your righteousness. You will be enriched in every way so that you can be generous on every occasion."
+
+There are warnings against the rich who do not help the poor:
+
+James 5:1-3 (ESV)
+"Now listen, you rich people, weep and wail because of the misery that is coming on you. Your wealth has rotted, and moths have eaten your clothes. Your gold and silver are corroded. Their corrosion will testify against you and eat your flesh like fire. You have hoarded wealth in the last days."
 
 ## Should pastors get money for their work?
 
@@ -143,12 +156,26 @@ Paul could have taken money for himself, but instead he worked:
 > 12 Such people we command and urge in the Lord Jesus Christ to settle down and earn the bread they eat.
 > 13 And as for you, brothers and sisters, never tire of doing what is good.
 
+1 Timothy 5:17-18 (ESV)
+"The elders who direct the affairs of the church well are worthy of double honor, especially those whose work is preaching and teaching. For Scripture says, 'Do not muzzle an ox while it is treading out the grain,' and 'The worker deserves his wages.'"
+
+2 Corinthians 11:8-9 (ESV)
+"I robbed other churches by receiving support from them so as to serve you. And when I was with you and needed something, I was not a burden to anyone, for the brothers who came from Macedonia supplied what I needed. I have kept myself from being a burden to you in any way, and will continue to do so."
+
 Acts 18:1-4 shows that Paul made tents to support himself.
+
+Acts 20:33-35 (ESV)
+"I have not coveted anyone's silver or gold or clothing. You yourselves know that these hands of mine have supplied my own needs and the needs of my companions. In everything I did, I showed you that by this kind of hard work we must help the weak, remembering the words the Lord Jesus himself said: 'It is more blessed to give than to receive.'"
 
 We should not try to sell the gospel:
 
 > 2 Corinthians 2:17 (TNIV)
 > 17 Unlike so many, we do not peddle the word of God for profit. On the contrary, in Christ we speak before God with sincerity, as those sent from God.
+
+Jesus did receive help to do His ministry:
+
+Luke 8:1-3 (ESV)
+"After this, Jesus traveled about from one town and village to another, proclaiming the good news of the kingdom of God. The Twelve were with him, and also some women who had been cured of evil spirits and diseases: Mary (called Magdalene)... Joanna the wife of Chuza, the manager of Herod's household; Susanna; and many others. These women were helping to support them out of their own means."
 
 Some tried to make a profit off the Gospel:
 

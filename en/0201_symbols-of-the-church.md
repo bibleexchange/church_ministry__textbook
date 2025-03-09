@@ -2,6 +2,8 @@
 
 Before we talk more about the leaders of the church, we need to make sure we understand what the church is. We do not have any place in the New Testament that explains exactly what the church is and how it is supposed to function day to day. What we do have are symbols that help us understand what the church is supposed to be. "What is immediately evident in these images for the church is that they all emphasize the communal aspect of Christian faith and life. This communal emphasis stands in contrast to the individualistic approach of so many of the expressions of Christianity in the modern Western world."<sup>[1]</sup>
 
+<!--talk about the universal unity of the church: Ephesians 4:4–5 and John 17:20–23-->
+
 ## The body (1 Cor. 12:12-27; Rom. 12:4-5)
 
 In the church, there is not one human leader who is more important than all other people in the church. The head of the body is not a human, but Jesus (Col. 1:18; Eph. 1:22-23; 5:23, 30). All members of the church, including pastors, bishops, and deacons, make up the body (Col. 1:24).

@@ -4,6 +4,8 @@
 <!--bullet points for each to show main characteristics. Compare to other types of polity so that the differences are understood.-->
 <!--There is some inconsistency and overlap in these. Some church might be mostly presbyterian, but have bishops (not with apostolic succession) that step in (and maybe overstep) and push certain issues or agendas or try to "fix" problems-->
 <!--Should use Scriptures that each use to justify their position-->
+<!--absolute power corrupts absolutely-->
+<!-- plurality of elders.-->
 
 TAG:
 An image of hierarchy at https://www.tag.or.tz/site/organization_structure
@@ -18,6 +20,8 @@ FPCT:
 
 > For much of the written history of institutional Christianity, episcopal government was the only known form of church organization. This changed at the Reformation. Many Protestant churches are now organized by either congregational or presbyterian church polities, both descended from the writings of John Calvin, a Protestant reformer working and writing independently following the break with the Catholic Church precipitated by The Ninety-Five Theses of Martin Luther. However, some people have disputed the episcopal polity before the reformation, such as Aerius of Sebaste in the 4th century.
 > https://en.wikipedia.org/wiki/Episcopal_polity
+
+<!--The orthodox church has multiple leaders in the top position, instead of just one leader, like the pope in the Roman Catholic church. Both are Episcopal. -->
 
 ### Presbyterian polity
 
