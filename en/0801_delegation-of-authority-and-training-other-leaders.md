@@ -1,5 +1,9 @@
 # Delegation of authority and training others
 
+<!--
+1 Timothy 5:22 (KJV 1900)
+22 Lay hands suddenly on no man, neither be partaker of other men’s sins: keep thyself pure.-->
+
 Or, how to choose leaders in the church?
 
 The process of some people being chosen as leaders:

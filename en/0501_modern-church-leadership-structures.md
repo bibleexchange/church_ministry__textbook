@@ -6,6 +6,12 @@
 <!--Should use Scriptures that each use to justify their position-->
 <!--absolute power corrupts absolutely-->
 <!-- plurality of elders.-->
+<!-- probably need some discussion about the "keys" of heaven as used in Matthew 18:15–20-->
+
+<!--I don't see any one of these as necessarily more Scriptural that the others. Some things essential to all church structures:
+1. Leaders are for our good and are to be respected.
+2. While there are leaders in the church, they do not hold all the power. The whole church is the priesthood of God.
+3. Leadership needs to be held accountable somehow. Either by answering to the congregation or plurality of elders.-->
 
 TAG:
 An image of hierarchy at https://www.tag.or.tz/site/organization_structure
