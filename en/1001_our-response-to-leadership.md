@@ -1,36 +1,25 @@
 # Our response to leadership
 
-Add some general thoughts about secular leaders from Romans 13.
+## Leaders are established by God
 
-What to do when you are not the leader.
+Daniel 2:21 teaches that God is the one who establishes government leaders in this world. There is no authority, unless it comes from God (Romans 13:1-2). God is the one who has given leaders to the church to help us grow in Christ (Eph. 4:11).
 
-Jesus said to listen to those who even do not practice what they preach:
+## Do not blindly follow all leaders
 
-> Matthew 23:3 (ESV)
-> So do and observe whatever they tell you, but not the works they do. For they preach, but do not practice.
+We should not automatically follow every leader in the church. They are human, as we are, and so can make mistakes, be deceived, or sin. We need to be careful that we are not like blind men being lead by other blind men (Matt. 15:14). We need to examine the lives and teaching of leaders to see if they are worthy of following.
 
-a plan for leadership and obedience:
+The Jews in Berea did not at first believe everything that Paul said, but they went home and searched the Old Testament to see if the things he said were true (Acts 17:11). Because there are many false prophets in the world, we need to test the spirits (1 John 4:1). Jesus said that they way we will know if someone is a true prophet is by their fruit (Matt. 7:15-16).
 
-Hebrews 13:17 (ESV)
-Obey your leaders and submit to them, for they are keeping watch over your souls, as those who will have to give an account. Let them do this with joy and not with groaning, for that would be of no advantage to you.
+Sometimes we can learn from leaders even when they are not perfect. Jesus told the people to listen to the teaching of the Pharisees, but not to follow their actions because they did not do what they preached (Matt. 23:3).
 
-> 1 Co 16:15–18 (TNIV)
-> 15You know that the household of Stephanas were the first converts in Achaia, and they have devoted themselves to the service of the Lord’s people. I urge you, brothers and sisters,
-> 16to submit to such as these and to everyone who joins in the work and labors at it.
-> 17I was glad when Stephanas, Fortunatus and Achaicus arrived, because they have supplied what was lacking from you.
-> 18For they refreshed my spirit and yours also. Such men deserve recognition.
+## Respect leaders for the work that they do
 
-> 1 Th 5:12–13 (TNIV)
-> 12Now we ask you, brothers and sisters, to acknowledge those who work hard among you, who care for you in the Lord and who admonish you.
-> 13Hold them in the highest regard in love because of their work. Live in peace with each other.
+We respect leaders because of the work that they do and not because they are more special than us (1 Thess. 5:12–13; 1 Cor. 16:15–18).
 
-We respect leaders because of the work that they do and not because they are more special than us.
+They are giving their time and energy to help us. They will have to give an account to God about how they were leaders to us. We make their job easier when we listen to them (Heb. 13:17).
 
-1 Timothy 5:1–2 (KJV 1900)
-1Rebuke not an elder, but intreat him as a father; and the younger men as brethren;
-2The elder women as mothers; the younger as sisters, with all purity.
+## Respect those that are older than you
 
-1 Peter 5:5 (KJV 1900)
-5Likewise, ye younger, submit yourselves unto the elder. Yea, all of you be subject one to another, and be clothed with humility: for God resisteth the proud, and giveth grace to the humble.
+The elders in the church have experience from life. We need to respect them and learn from them (1 Tim. 5:1–2).
 
-Yes, the younger need to respect the elder, but all of us need to respect each other.
+While the younger do need to respect the elder, all of us need to respect each other (1 Pet. 5:5).
