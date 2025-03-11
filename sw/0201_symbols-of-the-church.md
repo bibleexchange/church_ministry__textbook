@@ -1,6 +1,6 @@
 # Ishara za kanisa
 
-Kabla ya kuzungumza Zaidi kuhusu viongozi wa kanisa, tunatakiwa kuhakikisha tunaelewa kanisa ni nini. Hatukuwa na sehemu yeyote katika Agano Jipya inayoelezea hasa kanisa ni nini na linatakiwa kutendaje kazi siku kwa siku. Tulichonacho ni ishara zinazotusaidia kuelewa kanisa linatakiwa liweje. "Kilicho dhahiri cha haraka haraka katika picha za kanisa ni kwamba zote zinasisitiza kipengele cha jumuiya ya Imani ya Kikristo na maisha. Msisitizo huu wa jumuiya unasimama kwa tofauti na mbinu ya kibinafsi ya maneno mengi ya Kikristo katika dunia ya magharibi."<sup>[1]</sup>
+Kabla ya kuzungumza zaidi kuhusu viongozi wa kanisa, tunatakiwa kuhakikisha tunaelewa kanisa ni nini. Hatukuwa na sehemu yeyote katika Agano Jipya inayoelezea hasa kanisa ni nini na linatakiwa kutendaje kazi siku kwa siku. Tulichonacho ni ishara zinazotusaidia kuelewa kanisa linatakiwa liweje. "Kilicho dhahiri cha haraka haraka katika picha za kanisa ni kwamba zote zinasisitiza kipengele cha jumuiya ya Imani ya Kikristo na maisha. Msisitizo huu wa jumuiya unasimama kwa tofauti na mbinu ya kibinafsi ya maneno mengi ya Kikristo katika dunia ya magharibi."<sup>[1]</sup>
 
 ## Mwili (1 Kor. 12:12-27; Rum. 12:4-5)
 

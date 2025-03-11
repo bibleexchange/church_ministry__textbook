@@ -11,7 +11,7 @@ Pia kuna nafasi "mzee" ambayo ni neno la ujumla kwa kiongozi yeyote ndani ya kan
 
 Tusifikiri kwamba hizi orodha za viongozi ndizo tu zinaonyesha viongozi na wahudumu kanisani, lakini baadhi zinaonyesha. Kunaweza pia kukawa na waimbaji, wahazini, au wapishi. Tunaona viongozi waliochaguliwa kwa kusudi la kutoa chakula kwa maskini. Kulikuwa na wamishionari wengi ambao walikuwa matabibu na wauguzi.
 
-Maneno mengi yaliyotumika na kanisa kwa viongozi yalikuwa yameshatumika Zaidi katika lugha ya Kigiriki kwa nafasi za kiraia. Hii inatuchanganya kwa sababu hatujui mara zote uhakika kutoka matumizi ya neno kama inazungumzia kuhusu nafasi ya kanisa rasmi au maelezo ya jumla ya mtu na nini walifanya.
+Maneno mengi yaliyotumika na kanisa kwa viongozi yalikuwa yameshatumika zaidi katika lugha ya Kigiriki kwa nafasi za kiraia. Hii inatuchanganya kwa sababu hatujui mara zote uhakika kutoka matumizi ya neno kama inazungumzia kuhusu nafasi ya kanisa rasmi au maelezo ya jumla ya mtu na nini walifanya.
 
 ## Mfanyakazi mwenza
 
@@ -33,7 +33,7 @@ Yesu aliitwa mtume (Erb. 3:1), pengine ni kwakuwa alileta ujumbe wa injili ulimw
 Didache ya mitume hutoa miongozo jinsi ya kujua kama mtume ni kweli. Kama watauliza pesa au kuchukua faida ya ukarimu wako, sasa watakuwa siyo mitume wa kweli. Hii inaonyesha kwamba kwenye kanisa la mwanzo kulikuwa na watu wakitafuta faida zao wenyewe:
 
 > Didache 11:3-6  
-> Kuhusu Mitume na Manabii, wanafanya kulingana na agizo la injili. Kila mtume akija kwako apokelewe kama Bwana, ila asikae Zaidi ya siku moja, au kama atakaa kwa siku ya pili tena; ila kama atakaa kwa siku tatu, atakuwa nabii wa uwongo. Na wakati mtume anaondoka asipokee chochote ila mkate mpaka afike mahali pa kupumzika; ila kama atauliza pesa, atakuwa nabii wa uwongo.
+> Kuhusu Mitume na Manabii, wanafanya kulingana na agizo la injili. Kila mtume akija kwako apokelewe kama Bwana, ila asikae zaidi ya siku moja, au kama atakaa kwa siku ya pili tena; ila kama atakaa kwa siku tatu, atakuwa nabii wa uwongo. Na wakati mtume anaondoka asipokee chochote ila mkate mpaka afike mahali pa kupumzika; ila kama atauliza pesa, atakuwa nabii wa uwongo.
 
 ### Shahidi wa Kristo aliyeteswa
 
@@ -63,11 +63,9 @@ Nabii ni yule anayezungumza kama mjumbe wa Mungu moja kwa moja. Hawa ni baadhi y
 - Watoto wa kike nne wa Philipo (Mdo. 21:8-9)
 - Agabo (Mdo. 21:10)
 
-The Shepherd of Hermas, which was a document used by the early church, tells how to know if a prophet is real or not:
+Mchungaji wa Hermasi, ambayo ilikuwa hati iliyotumiwa na kanisa la kwanza, inaeleza jinsi ya kujua kama nabii ni kweli au la:
 
-Mchungaji wa Hamasi, ambayo ilikuwa hati iliyotumiwa na kanisa la kwanza, inaeleza jinsi ya kujua kama nabii ni kweli au la:
-
-> Mchungaji wa Hamasi, Mandate 11:7-8  
+> Mchungaji wa Hermasi, Mandate 11:7-8  
 > "Kwa namna gani, halafu," nikasema mimi,"Bwana je mtu anaweza kumjua nabii wa kweli na nabii wa uongo?" "Sikiliza," akasema, "kuhusiana na manabii wote, na kama nitakavyokuambia, hivyo unaweza kumjua nabii wa kweli na wa uongo. Utamjua mtu mwenye roho ya Mungu kwa maisha yake. Kwa upande mmoja yeye aliye na roho itokayo juu ni mpole na muungwana, mnyenyekevu na hujilinda na maovu yote na matamanio ya uasi wa ulimwengu huu na hujifanya masikini kuliko watu wote, na hajibu chochote anapokabiliwa wala haongei peke yake (kwani Roho Mtakatifu mtu anapotamani kuongea), balikatika wakati ambao Mungu anatamani yeye azungumze."
 
 ## Wainjilisti
@@ -108,7 +106,7 @@ Baadhi ya watu wanafikiri kwamba waangalizi na mashemasi walikuwa kitu kimoja, l
 
 Katika wakati wa Inyasi katika karne ya pili (107 KK), kulikuwa na mmoja askofu "mkuu" wa kila mji. Hizi zilikuwa juu ya viongozi, ambao walikuwa juu ya mashemasi.<sup>[6]</sup> Inyasi alifundisha kwamba askofu alizungumza moja kwa moja na Mungu na kwamba kutokumtii askofu kulikuwa ni kutokumtii Mungu.
 
-Katika Agano Jipya, Wafilipi 1:1 ni mstari unaotuonyesha kwamba mfumo wa Inyasi haukuwa kitu kilichokuwa kinafanyika wakati wa Paulo. Mstari huu unaonyesha kuwa askofu (mwangalizi) na viongozi hawakuwa juu ya halaiki yote, bali walihusishwa kati ya halaiki wote.<sup>[7]</sup> Mstari huu pia unaonyesha askofu Zaidi ya mmoja ndani ya mji mmoja.
+Katika Agano Jipya, Wafilipi 1:1 ni mstari unaotuonyesha kwamba mfumo wa Inyasi haukuwa kitu kilichokuwa kinafanyika wakati wa Paulo. Mstari huu unaonyesha kuwa askofu (mwangalizi) na viongozi hawakuwa juu ya halaiki yote, bali walihusishwa kati ya halaiki wote.<sup>[7]</sup> Mstari huu pia unaonyesha askofu zaidi ya mmoja ndani ya mji mmoja.
 
 Japokuwa wazo la askofu kuwa na nguvu kuliko watu wengine katika kanisa haitoki moja kwa moja katika Agano Jipya, katika karne ya pili, ilikuwa kawaida katika kanisa. Kwasababu kulikuwa na askofu mmoja tu katika mji, watu waligombania nafasi ya askofu. Klementi, amabye alikuwa baba wa kanisa la kwanza, alijua kuwa watu wengi wangegombania kuwa askofu. Hii inaonyesha kuwa kwa wakati fulani, nafasi ilikuwa maarufu sana katika kanisa:
 

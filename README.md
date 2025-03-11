@@ -31,3 +31,7 @@ Yak.
 3 Yoh.
 Yud.
 Ufu.
+
+## Useful Regex
+
+(,|\.|;|:\))([a-z]|[0-9])|[a-z]\(|[0-9][a-z]

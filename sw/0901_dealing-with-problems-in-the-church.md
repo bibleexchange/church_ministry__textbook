@@ -49,16 +49,16 @@ Paul says that if someone is causing division in the church, you should warn the
 Paulo anasema kama mtu anasababisha matabaka ndani ya kanisa, muwaonye mara mbili kabla ya kuwaondoa katika kanisa (Tito 3:10-11).
 
 The sins that Paul are most concerned about are the sins that would cause division in the church:
-Dhambi ambazo Paulo anaziangalia Zaidi mi dhambi ambazo zinaleta matabaka ndani ya kanisa:
+Dhambi ambazo Paulo anaziangalia zaidi mi dhambi ambazo zinaleta matabaka ndani ya kanisa:
 
 Disobedience (2 Thess. 3:6; 3:14-15)
 
 1. Kutokutii (2 Thes 3:6; 3:14-15)
 2. False teaching (Rom. 16:17-18; 1 Tim. 6:3-5; 2 Tim. 3:5; 2 John 1:9-11)
-3. Mafundisho ya uongo (Rum 16:17-18; 1 Tim. 6:3-5; 2 Yoh. 1:9-11)
+3. Mafundisho ya uongo (Rum. 16:17-18; 1 Tim. 6:3-5; 2 Yoh. 1:9-11)
 
 Besides these, 1 Corinthians 5:11 also lists sexually immorality, greed, idolatry, slandering, drunkenness, and swindling.
-Zaidi ya haya, 1 Kor 5:11 pia inaorodhesha uasherati, ulafi, ibada ya sanamu, kudanganya, ulevi na unyang’anyi.
+Zaidi ya haya, 1 Korintho 5:11 pia inaorodhesha uasherati, ulafi, ibada ya sanamu, kudanganya, ulevi na unyang’anyi.
 
 When possible, when there are problems between two people in the church, that problem should be solved inside the church instead of going to the civic government (1 Cor. 6:1-8).
 Ikiwezekana, kukiwa na matatizo kati ya watu wawili katika kanisa, tatizo hilo ni lazima litatuliwe ndani ya kanisa badala ya kwenda katika serikali za mitaa (1 Kor. 6:1-8).
@@ -120,7 +120,7 @@ Tunatakiwa kuwa makini tusiwe wagumu sana kwa wale waliotenda dhambi. Tunatakiwa
 
 ## Disputes in the New Testament
 
-##Migogoro katika agano la kale
+##Migogoro katika Agano la Kale
 
 There are some times in the New Testament when people disagreed. We cannot make doctrine out of how they solved these issues, but we can learn wisdom in the decisions that they made.
 Kuna nyakati katika agano jipya ambapo watu hawakuelewana. Hatuwezi kutengeneza fundisho la namna walivyotatua mambo, lakini tunaweza kujifunza hekima katika maamuzi waliyofanya.
@@ -144,7 +144,7 @@ Paulo alitaka kumleta Yohana Marko katika safari nyingine ya kimisheni, lakini B
 ### Huduma tofauti ya Paulo na Petro (Gal. 2:7-10)
 
 Paul thought that the ministry should be focused on the gentiles, but Peter wanted to focus on the Jews. The apostles recognized the ministry of Paul and agreed to send them to preach to the gentiles.
-Paulo alifikiria kuwa huduma inatakiwa iwahusu Zaidi mataifa, lakini Petro alitaka kutazama Zaidi wayahudi. Mitume waligundua huduma ya Paulo na kukubali kuwatuka kuhubiri kwa mataifa.
+Paulo alifikiria kuwa huduma inatakiwa iwahusu zaidi mataifa, lakini Petro alitaka kutazama zaidi wayahudi. Mitume waligundua huduma ya Paulo na kukubali kuwatuka kuhubiri kwa mataifa.
 
 ### Euodia and Syntyche's conflict (Phil. 4:2-3)
 

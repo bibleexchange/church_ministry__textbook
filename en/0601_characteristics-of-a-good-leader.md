@@ -21,12 +21,12 @@ We should not think that these are complete lists of what makes a good leader. N
 
 Besides these longer lists in 1 Timothy and Titus, we have shorter lists that list qualities for leaders:
 
-- Acts 6:3: Wherefore, brethren, look ye out among you seven men of honest report, full of the Holy Ghost and wisdom, whom we may appoint over this business.
-- 2 Timothy 2:24: And the servant of the Lord must not strive; but be gentle unto all men, apt to teach, patient,
+- Acts 6:3: "Wherefore, brethren, look ye out among you seven men of honest report, full of the Holy Ghost and wisdom, whom we may appoint over this business."
+- 2 Timothy 2:24: "And the servant of the Lord must not strive; but be gentle unto all men, apt to teach, patient,"
 
 The Didache had a similar list in 15:1-2:
 
-> Appoint therefore for yourselves bishops and deacons worthy of the Lord, meek men, and not lovers of money, and truthful and approved, for they also minister to you the ministry of the prophets and teachers. Therefore do not despise them, for they are your honorable men together with the prophets and teachers.<sup>[2]</sup>
+> Appoint therefore for yourselves overseers and deacons worthy of the Lord, meek men, and not lovers of money, and truthful and approved, for they also minister to you the ministry of the prophets and teachers. Therefore do not despise them, for they are your honorable men together with the prophets and teachers.<sup>[2]</sup>
 
 Polycarp had a similar lists in his epistle to the Ephesians:
 
@@ -60,9 +60,9 @@ All people inside and outside the church should know that the church leader is a
 - They must be "worthy of respect" (1 Tim. 3:8)
 - They must be "be blameless" (Titus 1:7)
 
-This was also listed as one of the requirements for the helpers in Acts chapter 6 (Acts 6:3).
+This was also listed as one of the requirements for the helpers in Acts chapter six (Acts 6:3).
 
-### Temperate (kiasi) (1 Tim. 3:2, 11)
+### Temperate (1 Tim. 3:2, 11)
 
 > The overseer is to maintain command of his reason, to be watchful and observant of things going on around him, and balanced in his assessments.<sup>[4]</sup>
 
@@ -94,7 +94,7 @@ The leader in the church must first be a good leader in the home. If he cannot t
 
 The Shepherd of Hermas, which was a document used for teaching in the early church, says:
 
-> Bishops and hospitable men who at all times received the servants of God into their houses gladly and without hypocrisy; and the bishops ever ceaselessly sheltered the destitute and the widows by their ministration, and ever behaved with holiness.<sup>[7]</sup>
+> Overseers and hospitable men who at all times received the servants of God into their houses gladly and without hypocrisy; and the overseers ever ceaselessly sheltered the destitute and the widows by their ministration, and ever behaved with holiness.<sup>[7]</sup>
 
 <!--
 ### Humility
@@ -115,7 +115,7 @@ The elders still have wisdom that comes from life, so we should learn from them 
 
 Does someone have to be married to be a leader in the church? Overseers (1 Tim. 3:2), deacons (1 Tim. 3:12), and elders (Titus 1:6) were all to be the husband of one wife. In Greek, there is no difference between the words "woman" and "wife." So in Greek, this prase is "one-woman man." There are four possible meanings to what Paul said.
 
-### Possible meaning 1: The Leader must be married
+### Possible meaning 1: The leader must be married
 
 This is not very likely, since Paul was not married (1 Cor. 7:8). He would not tell people to do something that he does not do himself. Other apostles had wives, and Paul had that right to take a wife. He chose not to take a wife so that he would have more freedom to travel and preach the gospel (1 Cor. 9:5).
 
@@ -125,15 +125,15 @@ Marriage is not a sin. It can even be a good thing. But it can limit your time, 
 
 Marriage can help leaders, because they can learn to be a leader in their home and then be able to be a good leader in the church.
 
-### Possible meaning 2: The Leader must not have more than one wife at one time
+### Possible meaning 2: The leader must not have more than one wife at one time
 
 This is not likely what Paul meant, since not many Jews or Christians practiced polygamy.<sup>[8]</sup>
 
-### Possible meaning 3: The Leader must be faithful to his current wife
+### Possible meaning 3: The leader must be faithful to his current wife
 
 "This would allow for the possibility of an overseer being remarried after a death, divorce, or possibly adultery in the distant past but would disallow polygamy and sexual immorality (even if the overseer were not married, since the guidelines would be no less stringent for the unmarried than the married)."<sup>[9]</sup>
 
-### Possible meaning 4: The Leader must not marry again
+### Possible meaning 4: The leader must not marry again
 
 In is possible that this means that the leader should not be divorced and married again.
 
