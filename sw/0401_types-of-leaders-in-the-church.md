@@ -15,7 +15,7 @@ Maneno mengi yaliyotumika na kanisa kwa viongozi yalikuwa yameshatumika Zaidi ka
 
 ## Mfanyakazi mwenza
 
-Neno lililotumika mara nyingi na Paulo kuelezea mtu maalum ni "mfanyakazi mwenza," lnalotokea mara kumi na mbili katika maandiko (War. 16:3, 9, 21; 1 Kor. 1:24; 8:23; Wafil. 2:25; 4:3; Wakol. 4:11; 1 Wathes. 3:2; Fil. 1, 24).<sup>[2]</sup>
+Neno lililotumika mara nyingi na Paulo kuelezea mtu maalum ni "mfanyakazi mwenza," lnalotokea mara kumi na mbili katika maandiko (Rum. 16:3, 9, 21; 1 Kor. 1:24; 8:23; Flp. 2:25; 4:3; Kol. 4:11; 1 The. 3:2; Fil. 1, 24).<sup>[2]</sup>
 
 ## Mitume
 
@@ -26,9 +26,9 @@ There are two meanings of apostle: Kichwa kinakuja kutoka neno lenye maana kigir
 
 ### Mjumbe
 
-Hii ilitumika kwa wote waliokuwa wakihubiri injili makanisani (2 Kor. 8:23; Wafil. 2:25). Wakati mwingine katika Agano Jipya, mfumo wa kitenzi (apostello) ilitumika kama wakati Yesu alipotuma watu 70 katika Luka 10:1.
+Hii ilitumika kwa wote waliokuwa wakihubiri injili makanisani (2 Kor. 8:23; Flp. 2:25). Wakati mwingine katika Agano Jipya, mfumo wa kitenzi (apostello) ilitumika kama wakati Yesu alipotuma watu 70 katika Lk. 10:1.
 
-Yesu aliitwa mtume (Waeb. 3:1), pengine ni kwakuwa alileta ujumbe wa injili ulimwenguni.
+Yesu aliitwa mtume (Erb. 3:1), pengine ni kwakuwa alileta ujumbe wa injili ulimwenguni.
 
 Didache ya mitume hutoa miongozo jinsi ya kujua kama mtume ni kweli. Kama watauliza pesa au kuchukua faida ya ukarimu wako, sasa watakuwa siyo mitume wa kweli. Hii inaonyesha kwamba kwenye kanisa la mwanzo kulikuwa na watu wakitafuta faida zao wenyewe:
 
@@ -37,19 +37,19 @@ Didache ya mitume hutoa miongozo jinsi ya kujua kama mtume ni kweli. Kama wataul
 
 ### Shahidi wa Kristo aliyeteswa
 
-"Kupitia maneno ya Paulo katika 1 Wakorintho 9:1-2 ingewezana kumaanisha kwamba sifa za mtume ni kuwa amemuona Bwana aliyefufuka, na kutumwa na yeye, na kuja kujiingiza kama mshiriki mwanzilishi (Waef. 2:20) na mfanyakazi kwaajili ya kulijenga kanisa."<sup>[3]</sup>
+"Kupitia maneno ya Paulo katika 1 Wakorintho 9:1-2 ingewezana kumaanisha kwamba sifa za mtume ni kuwa amemuona Bwana aliyefufuka, na kutumwa na yeye, na kuja kujiingiza kama mshiriki mwanzilishi (Efe. 2:20) na mfanyakazi kwaajili ya kulijenga kanisa."<sup>[3]</sup>
 
 Hawa ndio watu walioitwa mitume katika agano jipya:
 
-- Wale kumi na mbili (Mat. 10:2-4; **Luka 6:13**; Ufu. 21:14)
-- Paulo (War. 1:1)
+- Wale kumi na mbili (Mt. 10:2-4; **Lk. 6:13**; Ufu. 21:14)
+- Paulo (Rum. 1:1)
 - Barnaba (Mdo. 14:14)
 - Yakobo ndugu yake Bwana (Wagal. 1:19)
 - Mathiya (Mdo. 1:26)
-- Yunia na Androniko (War. 16:7)
+- Yunia na Androniko (Rum. 16:7)
 - Mitume ambao hawakutajwa (1 Kor. 15:7)
 
-Mitume na manabii walikuwa ni wa muhimu katika kuanzisha kanisa (Waef. 2:20).Mitume na manabii mara nyingi wanawekwa katika kundi moja (Luka 11:49; Waef. 2:20;3:5; 4:11; 1 Kor. 2:28).
+Mitume na manabii walikuwa ni wa muhimu katika kuanzisha kanisa (Efe. 2:20).Mitume na manabii mara nyingi wanawekwa katika kundi moja (Lk. 11:49; Efe. 2:20;3:5; 4:11; 1 Kor. 2:28).
 
 Leo hatuwezi kuwa mitume katika hisia za shahidi katika ufufuko wa Yesu, lakini tunaweza kuwa wajumbe.
 
@@ -96,7 +96,7 @@ There are not any people in the New Testament that have the title of "teacher," 
 Hakuna mtu yeyote katika agano jipya mwenye cheo kama "Mwalimu,"lakini kuna watu wengi wanaofundisha.
 
 Not everyone should desire to be a teacher, because a teacher will be judged more strictly by God (James 3:1).
-Sio kila mtu anatakiwa atamani kuwa mwalimu,kwasababu mwalimu atapata hukumu kubwa Zaidi kutoka kwa Mungu(Yakobo 3:1)
+Sio kila mtu anatakiwa atamani kuwa mwalimu,kwasababu mwalimu atapata hukumu kubwa Zaidi kutoka kwa Mungu (Yak. 3:1)
 
 The Didache tells how to know a good teacher:
 Didache anatuambia namna ya kumjua mwalimu mzuri:
@@ -114,7 +114,7 @@ The Greek word is _episkopē_, which means "overseer." In fact, the Neno Biblia 
 Neno la kigiriki ni episkote-,ikimaanisha "mwangalizi."kwa kweli neno Biblia Takatifu linatafsiri hii kama "mwangalizi."Cheo –mwangalizi-"katika matumizi yake halisi,angalau mpaka muda wa Ignasio,…lilikatazwa kwa wale waliokuwa waangalizi wa makanisa ya nyumbani……ofisi ilijulikana kama kawaida na ilijumuisha nafasi yeyote,ya kidunia au kanisa ambalo uangalizi ulikuwa wa muhimu."<sup>[5]</sup>
 
 Some people think that overseers and deacons were the same thing, but Philippians 1:1 show them as two separate positions. 1 Timothy 3:1-7 gives a list of qualifications for the overseer. The Didache also gives a list of qualifications:
-Baadhi ya watu wanafikiri kwamba waangalizi na mashemasi walikuwa kitu kimoja,lakini Wafilipi 1:1 inawaonyesha kama nafasi mbili tofauti.1Timotheo 3:1-7 inatoa orodha ya sifa za waangalizi.Didache pia inatoa orodha ya sifa:
+Baadhi ya watu wanafikiri kwamba waangalizi na mashemasi walikuwa kitu kimoja, lakini Wafilipi 1:1 inawaonyesha kama nafasi mbili tofauti.1Timotheo 3:1-7 inatoa orodha ya sifa za waangalizi.Didache pia inatoa orodha ya sifa:
 
 > Didache 15:1-4
 > Didache 15:1-4  
@@ -194,7 +194,7 @@ Inaweza tu kumaanisha mzee wa pekee katika kanisa,lakini pia inaweza kuwa nafasi
 > Na wazee pia wanatakiwa kuwa na huruma,kuwahurumia watu wote,kuwarudisha kondoo waliopotea,kuwatembelea wasiojiweza,wasimtenge mjane au yatima au masikini:bali kutoa siku zote katika hicho ambacho ndicho chenye heshima machoni pa Mungu na wanadamu,kuepukana na hasira,kuheshimu watu,kuepuka hukumu zisizo za haki,kuwa mbali na kupenda fedha,kutokuwa wepesi kuamini kila lisemwalo na mtu,wasiwe wepesi wa kuhukumu,wakijua kuwa wote tu wadeni wa dhambi.<sup>[12]</sup>
 
 In the 2nd and 3rd epistles of John, John calls himself an elder and Peter also calls himself an elder (I Pet. 5:1).
-Katika waraka wa pili na wa tatu wa Yohana,Yohana anajiita mzee na Petro pia anajiita mzee( 1Pet 5:1).
+Katika waraka wa pili na wa tatu wa Yohana,Yohana anajiita mzee na Petro pia anajiita mzee( 1 Pet.5:1).
 
 The elders were to pray for people in the church that were sick (James 5:14).
-Wazee walitakiwa kuwaombea watu waliokuwa wagonjwa ndani ya kanisa( Yakobo 5:14).
+Wazee walitakiwa kuwaombea watu waliokuwa wagonjwa ndani ya kanisa (Yak. 5:14).

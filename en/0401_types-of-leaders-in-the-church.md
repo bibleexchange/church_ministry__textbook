@@ -30,7 +30,7 @@ Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 162). Word, Incorporated.
 
 Need to research this, since KJV completely translates these positions differently.-->
 
-<!--Nowhere are any of these titles applied to Timothy. Paul’s admonition to Timothy as the “Lord’s servant” (2 Tim 2:24–25) lists qualities that are similar to those listed for overseers and deacons, but it says nothing about Timothy being an overseer. He stands outside the local church structure as Paul’s delegate with the authority to enforce Paul’s decisions
+<!--Nowhere are any of these titles applied to Timothy. Paul’s admonition to Timothy as the “Lord’s servant” (2 Tim. 2:24–25) lists qualities that are similar to those listed for overseers and deacons, but it says nothing about Timothy being an overseer. He stands outside the local church structure as Paul’s delegate with the authority to enforce Paul’s decisions
 Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 162). Word, Incorporated.
 
 The Greek word for servant is doulos-->
@@ -199,7 +199,7 @@ The elders were to pray for people in the church that were sick (James 5:14).
 <!--Talk about the body of elders-->
 <!--The word was used for leaders of the Jews before it was used by the church (Matt. 21:23; Acts 4:5)-->
 <!--Elders are paired often with Apostles in the book of Acts (Acts 15:2, 4, 6, 22, 23; 16:4)-->
-<!--The titles of overseer and elder are used interchangeably. Paul instructs Titus concerning elders (Titus 1:5) and then in the next breath calls them overseers (Titus 1:7) with no indication that the audience has changed. That the list of qualities in Titus 1 so closely parallels that of the overseers in 1 Tim 3:1–7 suggests that the two terms refer to the same office. This same interchangability is found in Acts 20 where Paul calls the Ephesian elders (v 17) and tells them that as overseers (v 28) they should take care of the church.
+<!--The titles of overseer and elder are used interchangeably. Paul instructs Titus concerning elders (Titus 1:5) and then in the next breath calls them overseers (Titus 1:7) with no indication that the audience has changed. That the list of qualities in Titus 1 so closely parallels that of the overseers in 1 Tim. 3:1–7 suggests that the two terms refer to the same office. This same interchangability is found in Acts 20 where Paul calls the Ephesian elders (v 17) and tells them that as overseers (v 28) they should take care of the church.
 Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 162). Word, Incorporated.-->
 
 <!--## Widow

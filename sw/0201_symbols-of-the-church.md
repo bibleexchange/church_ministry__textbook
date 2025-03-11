@@ -2,9 +2,9 @@
 
 Kabla ya kuzungumza Zaidi kuhusu viongozi wa kanisa, tunatakiwa kuhakikisha tunaelewa kanisa ni nini. Hatukuwa na sehemu yeyote katika Agano Jipya inayoelezea hasa kanisa ni nini na linatakiwa kutendaje kazi siku kwa siku. Tulichonacho ni ishara zinazotusaidia kuelewa kanisa linatakiwa liweje. "Kilicho dhahiri cha haraka haraka katika picha za kanisa ni kwamba zote zinasisitiza kipengele cha jumuiya ya Imani ya Kikristo na maisha. Msisitizo huu wa jumuiya unasimama kwa tofauti na mbinu ya kibinafsi ya maneno mengi ya Kikristo katika dunia ya magharibi."<sup>[1]</sup>
 
-## Mwili (1 Kor. 12:12-27; War. 12:4-5)
+## Mwili (1 Kor. 12:12-27; Rum. 12:4-5)
 
-Katika kanisa, hakuna kiongozi wa kimwili ambaye ni muhimu kuliko watu wengine katika kanisa. Kichwa cha mwili sio mwanadamu, bali ni Yesu (Wakol. 1:18; Efe. 1:22-23; 5:23, 30). Washirika wote wa kanisa ukijumuisha wachungaji, waangalizi, na mashemasi wanaunda mwili (Wakol. 1:24).
+Katika kanisa, hakuna kiongozi wa kimwili ambaye ni muhimu kuliko watu wengine katika kanisa. Kichwa cha mwili sio mwanadamu, bali ni Yesu (Kol. 1:18; Efe. 1:22-23; 5:23, 30). Washirika wote wa kanisa ukijumuisha wachungaji, waangalizi, na mashemasi wanaunda mwili (Kol. 1:24).
 
 ### Sisi ni washirika wa mwili wa Kristo
 
@@ -42,7 +42,7 @@ Japokuwa mara nyingi tunazungumza kuhusu jengo kama kanisa, kanisa ni watu na si
 - "Mmejengwa juu ya msingi wa mitume na manabii" (Efe. 2:20-22)
 - "Kanisa la Mungu aliye hai, nguzo na msingi wa kweli" (1 Tim. 3:15)
 
-Yesu ni jiwe la pembeni (Mat. 21:42; Marko 12:11; Luka 20:17; Mdo. 4:11; Efe. 2:19-20; 1 Pet. 2:6-7).
+Yesu ni jiwe la pembeni (Mt. 21:42; Marko 12:11; Lk. 20:17; Mdo. 4:11; Efe. 2:19-20; 1 Pet. 2:6-7).
 
 ## Kundi/Kondoo (Yohana 10:1-16; Matendo 20:28-29; 1 Pet. 5:2-4)
 
@@ -59,7 +59,7 @@ Katika Warumi 11:17-24, Paulo anatumia mfano wa mti wa mzeituni kuwaelezea watu 
 
 ## Shamba/Mavuno
 
-Kanisa limeonyeshwa kama shamba la Mungu (1 Kor. 3:9) na watenda kazi katika mavuno yake (Mat. 9:37-38).
+Kanisa limeonyeshwa kama shamba la Mungu (1 Kor. 3:9) na watenda kazi katika mavuno yake (Mt. 9:37-38).
 
 ## Bibi harusi wa Kristo (Efe. 5:25-32; Ufu. 19:7-9, 21:2)
 

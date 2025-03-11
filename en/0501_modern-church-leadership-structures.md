@@ -22,8 +22,8 @@ An image of hierarchy at https://www.tag.or.tz/site/organization_structure
 
 FPCT:
 
-> TUNAAMINI... Kwamba kila kanisa la mahali chini ya FPCT lina uhuru wa kujiongoza, chini ya Baraza halali la wazee lililoundwa kwa msingi wa Biblia. (Mdo.20:28;1Pet 5:1-3)
-> We believe... That each local church under the FPCT has the freedom to govern itself, under a legitimate Council of Elders formed on the basis of the Bible. (Acts 20:28; 1Pet 5:1-3)
+> TUNAAMINI... Kwamba kila kanisa la mahali chini ya FPCT lina uhuru wa kujiongoza, chini ya Baraza halali la wazee lililoundwa kwa msingi wa Biblia. (Mdo.20:28;1 Pet.5:1-3)
+> We believe... That each local church under the FPCT has the freedom to govern itself, under a legitimate Council of Elders formed on the basis of the Bible. (Acts 20:28; 1 Pet.5:1-3)
 > https://fpct.or.tz/page/tunachokiamini
 
 ### Episcopal polity
