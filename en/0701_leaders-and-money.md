@@ -177,6 +177,12 @@ Jesus did receive help to do His ministry:
 Luke 8:1-3 (ESV)
 "After this, Jesus traveled about from one town and village to another, proclaiming the good news of the kingdom of God. The Twelve were with him, and also some women who had been cured of evil spirits and diseases: Mary (called Magdalene)... Joanna the wife of Chuza, the manager of Herod's household; Susanna; and many others. These women were helping to support them out of their own means."
 
+Jesus told the seventy to not bring money with them when they traveled. They were supposed to depend on other people to take care of them:
+
+Luke 10:4–5 (KJV 1900)
+4Carry neither purse, nor scrip, nor shoes: and salute no man by the way.
+5And into whatsoever house ye enter, first say, Peace be to this house.
+
 Some tried to make a profit off the Gospel:
 
 1 Timothy 6:5–10 (KJV 1900)
