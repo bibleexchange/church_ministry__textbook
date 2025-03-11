@@ -12,6 +12,8 @@ We have to be careful that we do not copy the ideas of the world and use them in
 
 There are also many things from our current church culture that does not come from biblical principles, but are things that were implemented by leaders who wanted to increase their power over others. When we go into our study, we have to clear our minds of all the things that we think about leadership so that we can be ready to learn what the Bible really says about leadership.
 
+<!--There is a great need for workers. Jesus said the harvest is plentiful, but the laborers are few-->
+
 ## The things that matter to us don't always matter to God
 
 ### The number of people is not as important as spiritual growth
