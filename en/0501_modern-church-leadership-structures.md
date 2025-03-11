@@ -1,5 +1,9 @@
 ## Modern church organizational structures
 
+> Ultimately, church polity has to do with who runs the church and how. This is the question of authority. Does authority lie with a single officeholder? Does it lie with elected representatives? Or does it lie with the congregation as a whole?
+> Another question that polity addresses is that of an individual congregation’s relationship with other congregations. Are congregations connected administratively, within a hierarchy? Are they connected spiritually, part of an interdependent network of mutual submission? Or are they not connected at all?
+> https://tabletalkmagazine.com/article/2023/04/an-overview-of-church-polities/
+
 <!-- It would be good to list Tanzanian churches that follow each of these structures-->
 <!--bullet points for each to show main characteristics. Compare to other types of polity so that the differences are understood.-->
 <!--There is some inconsistency and overlap in these. Some church might be mostly presbyterian, but have bishops (not with apostolic succession) that step in (and maybe overstep) and push certain issues or agendas or try to "fix" problems-->
