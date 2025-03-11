@@ -1,6 +1,6 @@
 # Characteristics of a good leader
 
-We have lists of characteristics that are good for overseers (I Tim. 3:1-7), deacons (I Tim. 3:8-13), and elders (Titus 1:5-9). While these lists are good for us to understand what Paul was looking for in a good leader, we have to remember them in their original setting. These are letters written to specific people for a reason. In part, Paul was writing to Timothy and Titus to try to stop false teachers that were causing problems in the church (I Tim. 1:6-7; Titus 1:10-11). These were things that were opposite of what the false teachers were doing. The following table shows how the qualities of the leaders in the church are opposites of what the false teachers were doing:<sup>[1]</sup>
+We have lists of characteristics that are good for overseers (1 Tim. 3:1-7), deacons (1 Tim. 3:8-13), and elders (Titus 1:5-9). While these lists are good for us to understand what Paul was looking for in a good leader, we have to remember them in their original setting. These are letters written to specific people for a reason. In part, Paul was writing to Timothy and Titus to try to stop false teachers that were causing problems in the church (1 Tim. 1:6-7; Titus 1:10-11). These were things that were opposite of what the false teachers were doing. The following table shows how the qualities of the leaders in the church are opposites of what the false teachers were doing:<sup>[1]</sup>
 
 | Church Leaders                                                                                                                                                                                                                      | False Teachers                                                                                                                                                                                                                              |
 | ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- | ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
@@ -19,10 +19,10 @@ We have lists of characteristics that are good for overseers (I Tim. 3:1-7), dea
 
 We should not think that these are complete lists of what makes a good leader. Nor should we think these are all absolutes, especially the requirements to be the husband of one wife or have a household to manage, since Paul himself was not married and thus did not have a household.
 
-Besides these longer lists in I Timothy and Titus, we have shorter lists that list qualities for leaders:
+Besides these longer lists in 1 Timothy and Titus, we have shorter lists that list qualities for leaders:
 
 - Acts 6:3: Wherefore, brethren, look ye out among you seven men of honest report, full of the Holy Ghost and wisdom, whom we may appoint over this business.
-- II Timothy 2:24: And the servant of the Lord must not strive; but be gentle unto all men, apt to teach, patient,
+- 2 Timothy 2:24: And the servant of the Lord must not strive; but be gentle unto all men, apt to teach, patient,
 
 The Didache had a similar list in 15:1-2:
 
@@ -50,14 +50,14 @@ We should not just look for someone who has a strong personality or is a "powerf
 
 These good characteristics are not things special for only leaders, but they are expected of all Christians. The leader is supposed to be an example of these characteristics.
 
-### Good reputation (I Tim. 3:2, 7, 8; Titus 1:7)
+### Good reputation (1 Tim. 3:2, 7, 8; Titus 1:7)
 
 All people inside and outside the church should know that the church leader is a good person:
 
-- They must be "above reproach" (I Tim. 3:2)
-- They must be "respectable" (I Tim. 3:2)
-- They must "must have a good report of them which are without" (I Tim. 3:7)
-- They must be "worthy of respect" (I Tim. 3:8)
+- They must be "above reproach" (1 Tim. 3:2)
+- They must be "respectable" (1 Tim. 3:2)
+- They must "must have a good report of them which are without" (1 Tim. 3:7)
+- They must be "worthy of respect" (1 Tim. 3:8)
 - They must be "be blameless" (Titus 1:7)
 
 This was also listed as one of the requirements for the helpers in Acts chapter 6 (Acts 6:3).
@@ -88,7 +88,7 @@ A leader in the church should not love money. We will talk more about leaders an
 
 The leader in the church must first be a good leader in the home. If he cannot take care of his family, how can he take care of the church?
 
-### Hospitable (I Tim. 3:2; Titus 1:8)
+### Hospitable (1 Tim. 3:2; Titus 1:8)
 
 "Given the dangers of travel in the empire and the economic uncertainties faced by many believers, the early Christian mission and churches depended upon those who would open their homes and share their goods."<sup>[6]</sup> Jesus did not have His own house, but needed to stay in the house of other people. All Christians were supposed to be ready to receive the guest into their homes (Rom. 12:13; Heb. 13:2; 1 Pet. 4:9; 3 John 1:8).
 
@@ -147,7 +147,7 @@ In the second century, the church widely believed that this meant that the leade
 
 Because of the difficult Greek language, it is difficult to know exactly which of these possibilities Paul intended. Without doubt, the passages are speaking of fidelity in marriage. That is, monogamous and acceptable in the eyes of the community.<sup>[11]</sup>
 
-Paul included this in his list to show that it was good (although not necessary) for leaders in the church to be married. This is important, because the false teachers in Ephesus were forbidding people to be married (I Tim. 4:3).
+Paul included this in his list to show that it was good (although not necessary) for leaders in the church to be married. This is important, because the false teachers in Ephesus were forbidding people to be married (1 Tim. 4:3).
 
 ## Gender
 

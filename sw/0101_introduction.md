@@ -83,14 +83,14 @@ Hatulazimishi watu kufanya kitu sahihi, bali tunafanya kilicho sahihi na wengine
 
 Yesu aliwahukumu viongozi wakidini kwasababu waliwaambia watu wafanye kitu kimoja, na wao kufanya tofauti (Mat. 23:2-3). Paulo alisema jambo kama hilo katika Warumi 2:21-23.
 
-Kama tutamfuata Yesu, wakati watu wanatufuata sisi, watakuwa kweli wanamfuata Yesu (1 Wakor. 11:1).
+Kama tutamfuata Yesu, wakati watu wanatufuata sisi, watakuwa kweli wanamfuata Yesu (1 Kor. 11:1).
 
 ### Kiongozi hujenga
 
 Sababu kwamba Mungu alitoa viongozi kwa kanisa ni ili walijenge kanisa (Waefeso 4:11-13). Hii siyo kuhusu kujenga jengo, ila kuhusu kuwajenga watu kiroho mpaka wawe kama Yesu.
 
-Kila tendo la kuabudu kanisani linapaswa liwajenge watu (1 Wakor. 14:26).
+Kila tendo la kuabudu kanisani linapaswa liwajenge watu (1 Kor. 14:26).
 
-Mamlaka waliopewa viongozi ni kutumika kujenga na siyo kubomoa (2 Wakor. 10:8; 13:10).
+Mamlaka waliopewa viongozi ni kutumika kujenga na siyo kubomoa (2 Kor. 10:8; 13:10).
 
 Wakristo wote wanatakiwa kijaribu kujengana (War. 14:19; 15:2; 1 Wathes. 5:11).

@@ -2,7 +2,7 @@
 
 Today we have the idea of one leader in the church, the pastor, who is responsible for all decisions in the church and who cares for both spiritual and physical needs of the church. There is indication from Scripture that in the early church there was not a singular leader, but different leaders who each had different responsibilities. Some taught and preached while others took care of physical things. There is no indication from Scripture that one position was more important than others or that one person had more power than others.
 
-The New Testament gives qualifications for some positions of leadership, but it does not describe what those positions were and what they were supposed to do. We have two lists of types of leaders that have different titles in them. I Timothy 3:1-13 lists overseers and deacons, and Ephesians 4:11 lists apostle, prophet, evangelist, pastor, and teacher. In I Corinthians 12:28 we have a list that shares three of the titles from Ephesians 4:11 (apostles, prophets, and teachers). We can say that the list in Ephesians are people appointed by God for the good of the church and the list in I Timothy are leaders appointed by humans in the church. There can be overlap between these two lists. Someone can be both a pastor and an overseer and another person may be a pastor but not an overseer. The Didache, which was an early document used by the church, makes this clear by saying that people who are overseers or deacons do the ministry of prophets and teachers:
+The New Testament gives qualifications for some positions of leadership, but it does not describe what those positions were and what they were supposed to do. We have two lists of types of leaders that have different titles in them. 1 Timothy 3:1-13 lists overseers and deacons, and Ephesians 4:11 lists apostle, prophet, evangelist, pastor, and teacher. In 1 Corinthians 12:28 we have a list that shares three of the titles from Ephesians 4:11 (apostles, prophets, and teachers). We can say that the list in Ephesians are people appointed by God for the good of the church and the list in 1 Timothy are leaders appointed by humans in the church. There can be overlap between these two lists. Someone can be both a pastor and an overseer and another person may be a pastor but not an overseer. The Didache, which was an early document used by the church, makes this clear by saying that people who are overseers or deacons do the ministry of prophets and teachers:
 
 > Didache 15:1  
 > Elect, therefore, for yourselves overseers and deacons worthy of the Lord, men who are meek and not covetous, and true and approved, for they perform for you the service of prophets and teachers.<sup>[1]</sup>
@@ -37,7 +37,7 @@ The Greek word for servant is doulos-->
 
 ## Coworker
 
-The term most frequently used by Paul to describe specific individuals is "co-worker," which occurs twelve times in his writing (Rom. 16:3, 9, 21; I Cor. 3:9; II Cor. 1:24; 8:23; Phil. 2:25; 4:3; Col. 4:11; I Thess. 3:2; Phlm. 1, 24).<sup>[2]</sup>
+The term most frequently used by Paul to describe specific individuals is "co-worker," which occurs twelve times in his writing (Rom. 16:3, 9, 21; 1 Cor. 3:9; 2 Cor. 1:24; 8:23; Phil. 2:25; 4:3; Col. 4:11; I Thess. 3:2; Phlm. 1, 24).<sup>[2]</sup>
 
 ## Apostle
 
@@ -48,7 +48,7 @@ The title comes from a Greek word meaning "one who is sent." There are two meani
 
 ### Messenger
 
-This is a title used for those that were preaching the gospel in the churches (II Cor. 8:23; Phil. 2:25). Sometimes in the New Testament, the verb form (apostello) is used, such as when Jesus sent out the 70 in Luke 10:1.
+This is a title used for those that were preaching the gospel in the churches (2 Cor. 8:23; Phil. 2:25). Sometimes in the New Testament, the verb form (apostello) is used, such as when Jesus sent out the 70 in Luke 10:1.
 
 Jesus was called an apostle (Heb. 3:1), probably in the sense that He brought the message of the Gospel to the world.
 
@@ -123,7 +123,7 @@ The Didache tells how to know a good teacher:
 
 The Greek word is _episkopē_, which means "overseer." In fact, the Neno Biblia Takatifu translates this to be "mwangalizi." The title _overseer_ "in its original usage, at least until the time of Ignatius, ...was restricted to those who exercised oversight in the local church. ...the office referred to is quite general and might encompass any position, secular or ecclesiastical, where ‘oversight’ was necessary."<sup>[5]</sup>
 
-Some people think that overseers and deacons were the same thing, but Philippians 1:1 show them as two separate positions. I Timothy 3:1-7 gives a list of qualifications for the overseer. The Didache also gives a list of qualifications:
+Some people think that overseers and deacons were the same thing, but Philippians 1:1 show them as two separate positions. 1 Timothy 3:1-7 gives a list of qualifications for the overseer. The Didache also gives a list of qualifications:
 
 > Didache 15:1-4  
 > Appoint therefore for yourselves bishops and deacons worthy of the Lord, meek men, and not lovers of money, and truthful and approved, for they also minister to you the ministry of the prophets and teachers. Therefore do not despise them, for they are your honorable men together with the prophets and teachers. And reprove one another not in wrath but in peace as you find in the Gospel, and let none speak with any who has done a wrong to his neighbor, nor let him hear a word from you until he repents. But your prayers and alms and all your acts perform as ye find in the Gospel of our Lord.
@@ -159,11 +159,11 @@ Even if the idea of the bishop being more powerful than other people in the chur
 
 ## Deacon/Servant
 
-I Timothy 3:8-13 gives the qualifications for deacons. The word in Greek is _diakonis_, which means "servant." The Biblia Habari Neno translates it as "wasaidizi." Greek has a different word for slave (duolos), which is not what is used here.
+1 Timothy 3:8-13 gives the qualifications for deacons. The word in Greek is _diakonis_, which means "servant." The Biblia Habari Neno translates it as "wasaidizi." Greek has a different word for slave (duolos), which is not what is used here.
 
 ### Unofficial positions
 
-This can be used as an unofficial title. Jesus said all leaders in the kingdom of God have to be servants (diakonis in Greek) (Matt. 20:26). Some people who are deacons or elders could also be called servants. Paul and Apollos were called servants (I Cor. 3:5). This word did not originally come from the church, but it was a common word used to describe many different occupations.<sup>[8]</sup>
+This can be used as an unofficial title. Jesus said all leaders in the kingdom of God have to be servants (diakonis in Greek) (Matt. 20:26). Some people who are deacons or elders could also be called servants. Paul and Apollos were called servants (1 Cor. 3:5). This word did not originally come from the church, but it was a common word used to describe many different occupations.<sup>[8]</sup>
 
 > The creative power of the early Church was strong enough to fashion its own offices for the conduct of congregational life and divine worship.… Early Christianity took over words which were predominantly secular in their current usage and which had not yet been given any sharply defined sense. It linked these words with offices which were being fashioned in the community, and thus gave them a new sense which was so firmly welded with the activity thereby denoted that in all languages they have been adopted as loan-words to describe Christian office-bearers.<sup>[9]</sup>
 
@@ -178,7 +178,7 @@ People who do not believe that woman can hold positions in the church say that P
 
 We sometimes think that the deacon is a lesser position than the overseer, but "there is no suggestion in the text that the deacon is subordinate to the overseer. Both performed vital functions in the church, and it is the deacon who is expressly told that a reward awaits those who serve well."<sup>[10]</sup>
 
-When comparing the requirements for overseer and deacon in I Timothy chapter 3, we the difference that deacons were not required to teach.
+When comparing the requirements for overseer and deacon in 1 Timothy chapter 3, we the difference that deacons were not required to teach.
 
 > The requirements for a deacon suggest that there would be substantial contact with people: not double-tongued; a dignified wife; faithful in marriage; a well-managed family. The requirement that they not be greedy may suggest some responsibility for the church’s purse, perhaps in the disbursement of funds to the poor.<sup>[11]</sup>
 

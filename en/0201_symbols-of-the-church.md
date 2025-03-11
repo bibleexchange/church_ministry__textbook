@@ -46,7 +46,7 @@ Even though many times we talk about the building as being the church, the churc
 
 Christ is the cornerstone (Matt. 21:42; Mark 12:10-11; Luke 20:17; Acts 4:11; Eph. 2:19-20; 1 Pet. 2:6-7).
 
-## Flock/Sheep (John 10:1-16, Acts 20:28-29, 1 Pet. 5:2-4)
+## Flock/Sheep (John 10:1-16; Acts 20:28-29; 1 Pet. 5:2-4)
 
 Jesus is the shepherd, and his people are the flock.
 

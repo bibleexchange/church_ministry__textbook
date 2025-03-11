@@ -15,7 +15,7 @@ Maneno mengi yaliyotumika na kanisa kwa viongozi yalikuwa yameshatumika Zaidi ka
 
 ## Mfanyakazi mwenza
 
-Neno lililotumika mara nyingi na Paulo kuelezea mtu maalum ni "mfanyakazi mwenza," lnalotokea mara kumi na mbili katika maandiko (War. 16:3, 9, 21; 1 Wakor. 1:24; 8:23; Wafil. 2:25; 4:3; Wakol. 4:11; 1 Wathes. 3:2; Fil. 1, 24).<sup>[2]</sup>
+Neno lililotumika mara nyingi na Paulo kuelezea mtu maalum ni "mfanyakazi mwenza," lnalotokea mara kumi na mbili katika maandiko (War. 16:3, 9, 21; 1 Kor. 1:24; 8:23; Wafil. 2:25; 4:3; Wakol. 4:11; 1 Wathes. 3:2; Fil. 1, 24).<sup>[2]</sup>
 
 ## Mitume
 
@@ -26,7 +26,7 @@ There are two meanings of apostle: Kichwa kinakuja kutoka neno lenye maana kigir
 
 ### Mjumbe
 
-Hii ilitumika kwa wote waliokuwa wakihubiri injili makanisani (2 Wakor. 8:23; Wafil. 2:25). Wakati mwingine katika Agano Jipya, mfumo wa kitenzi (apostello) ilitumika kama wakati Yesu alipotuma watu 70 katika Luka 10:1.
+Hii ilitumika kwa wote waliokuwa wakihubiri injili makanisani (2 Kor. 8:23; Wafil. 2:25). Wakati mwingine katika Agano Jipya, mfumo wa kitenzi (apostello) ilitumika kama wakati Yesu alipotuma watu 70 katika Luka 10:1.
 
 Yesu aliitwa mtume (Waeb. 3:1), pengine ni kwakuwa alileta ujumbe wa injili ulimwenguni.
 
@@ -47,9 +47,9 @@ Hawa ndio watu walioitwa mitume katika agano jipya:
 - Yakobo ndugu yake Bwana (Wagal. 1:19)
 - Mathiya (Matendo 1:26)
 - Yunia na Androniko (War. 16:7)
-- Mitume ambao hawakutajwa (1 Wakor. 15:7)
+- Mitume ambao hawakutajwa (1 Kor. 15:7)
 
-Mitume na manabii walikuwa ni wa muhimu katika kuanzisha kanisa (Waef. 2:20).Mitume na manabii mara nyingi wanawekwa katika kundi moja (Luka 11:49; Waef. 2:20;3:5; 4:11; 1 Wakor. 2:28).
+Mitume na manabii walikuwa ni wa muhimu katika kuanzisha kanisa (Waef. 2:20).Mitume na manabii mara nyingi wanawekwa katika kundi moja (Luka 11:49; Waef. 2:20;3:5; 4:11; 1 Kor. 2:28).
 
 Leo hatuwezi kuwa mitume katika hisia za shahidi katika ufufuko wa Yesu, lakini tunaweza kuwa wajumbe.
 
@@ -113,7 +113,7 @@ Didache anatuambia namna ya kumjua mwalimu mzuri:
 The Greek word is _episkopē_, which means "overseer." In fact, the Neno Biblia Takatifu translates this to be "mwangalizi." The title _overseer_ "in its original usage, at least until the time of Ignatius, ...was restricted to those who exercised oversight in the local church. ...the office referred to is quite general and might encompass any position, secular or ecclesiastical, where ‘oversight’ was necessary."<sup>[5]</sup>
 Neno la kigiriki ni episkote-,ikimaanisha "mwangalizi."kwa kweli neno Biblia Takatifu linatafsiri hii kama "mwangalizi."Cheo –mwangalizi-"katika matumizi yake halisi,angalau mpaka muda wa Ignasio,…lilikatazwa kwa wale waliokuwa waangalizi wa makanisa ya nyumbani……ofisi ilijulikana kama kawaida na ilijumuisha nafasi yeyote,ya kidunia au kanisa ambalo uangalizi ulikuwa wa muhimu."<sup>[5]</sup>
 
-Some people think that overseers and deacons were the same thing, but Philippians 1:1 show them as two separate positions. I Timothy 3:1-7 gives a list of qualifications for the overseer. The Didache also gives a list of qualifications:
+Some people think that overseers and deacons were the same thing, but Philippians 1:1 show them as two separate positions. 1 Timothy 3:1-7 gives a list of qualifications for the overseer. The Didache also gives a list of qualifications:
 Baadhi ya watu wanafikiri kwamba waangalizi na mashemasi walikuwa kitu kimoja,lakini Wafilipi 1:1 inawaonyesha kama nafasi mbili tofauti.1Timotheo 3:1-7 inatoa orodha ya sifa za waangalizi.Didache pia inatoa orodha ya sifa:
 
 > Didache 15:1-4
@@ -143,14 +143,14 @@ Japokuwa wazo la askofu kuwa na nguvu kuliko watu wengine katika kanisa haitoki 
 
 ## Mashemasi/watumishi
 
-I Timothy 3:8-13 gives the qualifications for deacons. The word in Greek is _diakonis_, which means "servant." The Biblia Habari Neno translates it as "wasaidizi." Greek has a different word for slave (duolos), which is not what is used here.
+1 Timothy 3:8-13 gives the qualifications for deacons. The word in Greek is _diakonis_, which means "servant." The Biblia Habari Neno translates it as "wasaidizi." Greek has a different word for slave (duolos), which is not what is used here.
 1 Timotheo 3:8-13 inatupa sifa za mashemasi.Neno hili kwa kigiriki ni diakonis-,ikiwa na maana "mtumishi."Biblia Habari neno inatafsiri kuwa ni "wasaidizi."Kigiriki ina neno tofauti kwa mtumwa(duolos),ambalo sio neno linalotumika hapa.
 
 ### Unofficial positions
 
 ### Nafasi zisizo rasmi
 
-This can be used as an unofficial title. Jesus said all leaders in the kingdom of God have to be servants (diakonis in Greek) (Matt. 20:26). Some people who are deacons or elders could also be called servants. Paul and Apollos were called servants (I Cor. 3:5). This word did not originally come from the church, but it was a common word used to describe many different occupations.<sup>[8]</sup>
+This can be used as an unofficial title. Jesus said all leaders in the kingdom of God have to be servants (diakonis in Greek) (Matt. 20:26). Some people who are deacons or elders could also be called servants. Paul and Apollos were called servants (1 Cor. 3:5). This word did not originally come from the church, but it was a common word used to describe many different occupations.<sup>[8]</sup>
 Hii inaweza kutumika kama cheo kisicho rasmi. Yesu alisema viongozi wote katika ufalme wa Mungu wanatakiwa kuwa watumishi (diakonisi kwa kigiriki) (Math 20:26). Baadhi ya watu ambao ni mashemasi au viongozi pia wanaweza kuitwa watumishi. Paulo na Apollo waliitwa watumishi (1 Kor 3:5). Neno hili chanzo chake sio kanisani bali lilikuwa neno la kawaida lililotumika kuelezea kazi tofauti tofauti.<sup>[8]</sup>
 
 > The creative power of the early Church was strong enough to fashion its own offices for the conduct of congregational life and divine worship.… Early Christianity took over words which were predominantly secular in their current usage and which had not yet been given any sharply defined sense. It linked these words with offices which were being fashioned in the community, and thus gave them a new sense which was so firmly welded with the activity thereby denoted that in all languages they have been adopted as loan-words to describe Christian office-bearers.<sup>[9]</sup>
@@ -174,7 +174,7 @@ Watu wasioamini kuwa mwanamke anaweza kushika nafasi katika kanisa wanasema kuwa
 We sometimes think that the deacon is a lesser position than the overseer, but "there is no suggestion in the text that the deacon is subordinate to the overseer. Both performed vital functions in the church, and it is the deacon who is expressly told that a reward awaits those who serve well."<sup>[10]</sup>
 Mara nyingine tunafikiri kwamba ushemasi ni nafasi ndogo kuliko uaskofu,lakini "hakuwa mawazo katika barua kwamba ushemasi ni chini ya uaskofu.Wote walifanya kazi za muhimu ndani ya kanisa,na ni shemasi ndiye aliambiwa wazi wazi kuwa zawadi inawasubiri wale wanaotumikia vizuri."<sup>[10]</sup>
 
-When comparing the requirements for overseer and deacon in I Timothy chapter 3, we the difference that deacons were not required to teach.
+When comparing the requirements for overseer and deacon in 1 Timothy chapter 3, we the difference that deacons were not required to teach.
 Tukilinganisha mahitaji ya mwangalizi na shemasi katika 1Timotheo Mlango wa 3,kuna tofauti kwamba mashemasi hawakutakiwa kufundisha.
 
 > The requirements for a deacon suggest that there would be substantial contact with people: not double-tongued; a dignified wife; faithful in marriage; a well-managed family. The requirement that they not be greedy may suggest some responsibility for the church’s purse, perhaps in the disbursement of funds to the poor.<sup>[11]</sup>
