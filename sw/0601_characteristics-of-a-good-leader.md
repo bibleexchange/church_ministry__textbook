@@ -60,7 +60,7 @@ Watu wote ndani na nje ya kanisa lazima wajue kuwa kiongozi ni mtu mzuri:
   -Ni lazima “wasiwe watu wa kulaumiwa”( 1Tito 1:7)
 
 This was also listed as one of the requirements for the helpers in Acts chapter 6 (Acts 6:3).
-Hii iliorodheshwa pia kama moja ya mahitaji kwa wasaidizi katika Matendo mlango wa 6 (Matendo 6:3).
+Hii iliorodheshwa pia kama moja ya mahitaji kwa wasaidizi katika Matendo mlango wa 6 (Mdo. 6:3).
 
 ### Temperate (kiasi) (1 Tim. 3:2, 11)
 
@@ -232,13 +232,13 @@ Katika agano jipya:
 - Mary Magdalene (John 20:18)
   -Maria Makdalena ( Yohana 20:18)
 - Tabitha (Acts 9:36)
-  Tabita ( Matendo 9:36)
+  Tabita ( Mdo. 9:36)
 - Lydia (Acts 16:14)
-  -Lidia ( Matendo 16:14)
+  -Lidia (Mdo. 16:14)
 - Priscilla (Acts 18:26)
-  -Prisila ( Matendo 18:26)
+  -Prisila (Mdo 18:26)
 - Philip's daughters (Acts 21:9)
-  -Binti zake Philipo ( Matendo 21:9)
+  -Binti zake Philipo (Mdo 21:9)
 - Phoebe (Rom. 16:1)
   -Fibi ( Rum 16:1)
 - Junia (Rom. 16:7)

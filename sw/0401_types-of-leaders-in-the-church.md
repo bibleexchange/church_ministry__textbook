@@ -43,9 +43,9 @@ Hawa ndio watu walioitwa mitume katika agano jipya:
 
 - Wale kumi na mbili (Mat. 10:2-4; **Luka 6:13**; Ufu. 21:14)
 - Paulo (War. 1:1)
-- Barnaba (Matendo 14:14)
+- Barnaba (Mdo. 14:14)
 - Yakobo ndugu yake Bwana (Wagal. 1:19)
-- Mathiya (Matendo 1:26)
+- Mathiya (Mdo. 1:26)
 - Yunia na Androniko (War. 16:7)
 - Mitume ambao hawakutajwa (1 Kor. 15:7)
 
@@ -188,7 +188,7 @@ This is the most common name for leaders in the church. There are two Greek word
 Hili ni jina maarufu sana kwa viongozi wa kanisa. Kuna majina mawili ya kigiriki yanayotumika kwa hili:neoteros* na * presbyteros\_.Katika tafsiri zote za Kiswahili, maneno yote mawili yanatafsiriwa kama "mzee."
 
 It could just refer to an older peron in the church, but also could be an actual appointed position, as we see in Acts 14:23 when Paul and Barnabas appointed elders in the church. Titus 1:5-9 gives a list of qualifications of elders. Polycarp, who was taught by the Apostle John, also gave a list of qualifications for elders:
-Inaweza tu kumaanisha mzee wa pekee katika kanisa,lakini pia inaweza kuwa nafasi iliyochaguliwa,kama tunavyoona katika Matendo 14:23 wakati Paulo na Barnaba walipochagua wazee ndani ya kanisa.Tito 1:5-9 inatoa orodha ya sifa za wazee.Policarp ambaye alifundishwa na Yohana, pia alitoa orodha ya sifa za wazee:
+Inaweza tu kumaanisha mzee wa pekee katika kanisa,lakini pia inaweza kuwa nafasi iliyochaguliwa,kama tunavyoona katika Matendo 14:23 wakati Paulo na Barnaba walipochagua wazee ndani ya kanisa. Tito 1:5-9 inatoa orodha ya sifa za wazee.Policarp ambaye alifundishwa na Yohana, pia alitoa orodha ya sifa za wazee:
 
 > And the presbyters also must be compassionate, merciful towards all men, turning back the sheep that are gone astray, visiting all the infirm, not neglecting a widow or an orphan or a poor man: but providing always for that which is honorable in the sight of God and of men, abstaining from all anger, respect of persons, unrighteous judgment, being far from all love of money, not quick to believe anything against any man, not hasty in judgment, knowing that we are all debtors of sin.<sup>[12]</sup>
 > Na wazee pia wanatakiwa kuwa na huruma,kuwahurumia watu wote,kuwarudisha kondoo waliopotea,kuwatembelea wasiojiweza,wasimtenge mjane au yatima au masikini:bali kutoa siku zote katika hicho ambacho ndicho chenye heshima machoni pa Mungu na wanadamu,kuepukana na hasira,kuheshimu watu,kuepuka hukumu zisizo za haki,kuwa mbali na kupenda fedha,kutokuwa wepesi kuamini kila lisemwalo na mtu,wasiwe wepesi wa kuhukumu,wakijua kuwa wote tu wadeni wa dhambi.<sup>[12]</sup>

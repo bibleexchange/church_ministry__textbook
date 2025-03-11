@@ -41,7 +41,7 @@ Tunawaita viongozi wa kanisa "watumishi" wa Mungu, lakini mara nyingi hawatumiki
 
 Hatuko hapa mahususi kuzungumzia kuhusu nafasi ya Mchungaji kanisani, bali viongozi wote wa kanisa, bila kujali nafasi zao, ni kuhakikisha wanatunza watu wote ndani ya kanisa. Tutazungumza zaidi katika sura inayofuata kuhusu nafasi rasmi ya "mchungaji" katika kanisa.
 
-Kiongozi hujali mahitaji ya wengine. Amri imetolewa mara mbili katika agano jipya kwa viongozi wa kanisa kuwa wachungaji wa kundi la Mungu (1 Pet. 5:1-4; Matendo 20:28) Yesu pia alimwambia Petro lisha kondoo zangu (Yohana 21:15). Mchungaji ndiye anayeshughulika na mahitaji ya kondoo, pamoja na kuhakikisha wanapata chakula na maji na kuwalinda (Zaburi 23)
+Kiongozi hujali mahitaji ya wengine. Amri imetolewa mara mbili katika agano jipya kwa viongozi wa kanisa kuwa wachungaji wa kundi la Mungu (1 Pet. 5:1-4; Mdo. 20:28) Yesu pia alimwambia Petro lisha kondoo zangu (Yohana 21:15). Mchungaji ndiye anayeshughulika na mahitaji ya kondoo, pamoja na kuhakikisha wanapata chakula na maji na kuwalinda (Zaburi 23)
 
 Yesu ni mfano wetu mzuri kama mchungaji mwema anayetoa maisha yake kwa ajili ya kondoo (Yohana 10:11). Siyo kila mtu aliye kiongozi kanisani ambaye kweli anajali watu. Wengine hukimbia wakati mambo yanapokuwa magumu na kuacha watu wakitawanywa na adui (Yohana 10:12-13).
 
@@ -58,7 +58,7 @@ Viongozi kanisani wanatakiwa kuhakikisha kuwa watu wanaelewa Neno la Mungu na ku
 
 #### Mchungaji hushughulikia mahitaji ya kimwili
 
-Katika Matendo sura ya 6, kuna habari kuhusu mitume. Walikuwa wanawalisha wajane kila siku. Walisema walihitaji kutafuta mtu mwingine kufanya hiyo kazi, kwa sababu wakati walipokuwa wanawalisha chakula cha kimwili, hawakuwa na muda wa kuhudumia neno (Matendo 6:1-6).
+Katika Matendo sura ya 6, kuna habari kuhusu mitume. Walikuwa wanawalisha wajane kila siku. Walisema walihitaji kutafuta mtu mwingine kufanya hiyo kazi, kwa sababu wakati walipokuwa wanawalisha chakula cha kimwili, hawakuwa na muda wa kuhudumia neno (Mdo. 6:1-6).
 
 Kuhudumia mahitaji ya kimwili ya watu ni dhana iliyopingwa na huduma ya Kikristo, kwasababu kama mitume, tunasema hatuwezi kuacha kuhubiri neno na kuhudumia meza. Lakini bado walihakikisha watu wameshibishwa, pamoja na kwamba hawakufanya hivyo wenyewe. Walitafuta viongozi wengine ambao wangefanya hiyo kazi. Kama kanisa, hatuwezi tenganisha mahitaji ya kiroho na mahitaji ya kimwili ya watu. Kuna maeneo mengi katika agano jipya ambayo husema kuhusu utunzaji wa mahitaji ya kimwili ya watu:
 
@@ -67,7 +67,7 @@ Kuhudumia mahitaji ya kimwili ya watu ni dhana iliyopingwa na huduma ya Kikristo
 3. Wazee na Maaskofu walipaswa “kuwa na ukarimu” (1 Tim. 3:2; Tito 1:8)
 4. “Dini ya kweli” ni inayosaidia wajane na yatima (Yak. 1:27)
 5. Hatupaswi tu kuomba kwa mtu mwenye uhitaji, bali tunatakiwa kuwasaidia (Yak. 2:15-17)
-6. Kanisa la mwanzo walishiriki pamoja vyote walivyokuwa navyo, hivyo hakukuwa na mhitaji (Matendo 4:32-35)
+6. Kanisa la mwanzo walishiriki pamoja vyote walivyokuwa navyo, hivyo hakukuwa na mhitaji (Mdo. 4:32-35)
 7. Hatutakuwa na upendo wa Mungu kama tutawapuuza maskini (1 Yoh. 3:17-18)
 8. Tunatakiwa kuwasaidia watu ndani ya kanisa na nje ya kanisa (War. 12:13; Wag. 6:10; Wafilipi 2:4; 1 Tim. 5:8; 6:17-18; Waeb. 13:16)
 

@@ -31,7 +31,7 @@ Tunaona kuwa orodha hizi zina karama tofauti ndani yake, lakini zote zina unabii
 
 Mfano wa namna karama hizi tofauti tofauti zinavyotenda kazi inaweza kupatikana katika Matendo 6:1-6. Mitume waliwalisha wajane kila siku, lakini walisema kuwa walitakiwa kuacha, ili kwamba waweze kuzingatia zaidi maombi na huduma ya neno.Walichagua vijana saba kufanya kazi ya kuwalisha wajane. Vijana hawa walijaa "na Roho, na hekima." Haimaanishi hawakuwa na umuhimu kuliko mitume bali walikuwa na kazi tofauti ya kufanya.
 
-Baadaye Stefano "alifanya maajabu na miujiza katikati ya watu" (Matendo 6:8) na aliuliwa kwasababu alikuwa anahubiri kuhusu Yesu. Philipo alikwenda Samaria na kuhubiri Injili, kuponya wagonjwa na kutoa mapepo (Matendo 8:5-13). Vijana wote hawa walikuwa na nguvu kuu ya rohoni lakini walikuwa wanyenyekevu hata kuhudumia meza.
+Baadaye Stefano "alifanya maajabu na miujiza katikati ya watu" (Mdo. 6:8) na aliuliwa kwasababu alikuwa anahubiri kuhusu Yesu. Philipo alikwenda Samaria na kuhubiri Injili, kuponya wagonjwa na kutoa mapepo (Mdo. 8:5-13). Vijana wote hawa walikuwa na nguvu kuu ya rohoni lakini walikuwa wanyenyekevu hata kuhudumia meza.
 
 ## Hekalu/Jengo
 
@@ -42,7 +42,7 @@ Japokuwa mara nyingi tunazungumza kuhusu jengo kama kanisa, kanisa ni watu na si
 - "Mmejengwa juu ya msingi wa mitume na manabii" (Efe. 2:20-22)
 - "Kanisa la Mungu aliye hai, nguzo na msingi wa kweli" (1 Tim. 3:15)
 
-Yesu ni jiwe la pembeni (Mat. 21:42; Marko 12:11; Luka 20:17; Matendo 4:11; Efe. 2:19-20; 1 Pet. 2:6-7).
+Yesu ni jiwe la pembeni (Mat. 21:42; Marko 12:11; Luka 20:17; Mdo. 4:11; Efe. 2:19-20; 1 Pet. 2:6-7).
 
 ## Kundi/Kondoo (Yohana 10:1-16; Matendo 20:28-29; 1 Pet. 5:2-4)
 
