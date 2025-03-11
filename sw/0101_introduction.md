@@ -1,6 +1,6 @@
 # Utangulizi: Viongozi ambao si kama ulimwengu
 
-Hakuna taarifa nyingi katika agano jipya kuhusu muundo na kazi za kanisa la kwanza. Hatuwezi kupata mpango halisi kwenye Biblia jinsi gani ya kuongoza makanisa yetu. Mambo mengi tufanyayo katika makanisa ni kutoka miaka elfu mbili ya historia ya kanisa.
+Hakuna taarifa nyingi katika Agano Jipya kuhusu muundo na kazi za kanisa la kwanza. Hatuwezi kupata mpango halisi kwenye Biblia jinsi gani ya kuongoza makanisa yetu. Mambo mengi tufanyayo katika makanisa ni kutoka miaka elfu mbili ya historia ya kanisa.
 
 Siyo vyote vinavyofanyika katika kanisa hutoka kwenye Bibilia. Hilo halimaanishi kuwa vinavyofanyika kanisani ni vizuri au vibaya. Tunatakiwa tuchukuwe kidogo tunachokijua kutoka kwenye Biblia na kulinganisha na mambo yetu ya kisasa kuona kama tunafuata kanuni zilizopo katika Bibilia.
 
@@ -41,7 +41,7 @@ Tunawaita viongozi wa kanisa "watumishi" wa Mungu, lakini mara nyingi hawatumiki
 
 Hatuko hapa mahususi kuzungumzia kuhusu nafasi ya Mchungaji kanisani, bali viongozi wote wa kanisa, bila kujali nafasi zao, ni kuhakikisha wanatunza watu wote ndani ya kanisa. Tutazungumza zaidi katika sura inayofuata kuhusu nafasi rasmi ya "mchungaji" katika kanisa.
 
-Kiongozi hujali mahitaji ya wengine. Amri imetolewa mara mbili katika agano jipya kwa viongozi wa kanisa kuwa wachungaji wa kundi la Mungu (1 Pet. 5:1-4; Mdo. 20:28) Yesu pia alimwambia Petro lisha kondoo zangu (Yohana 21:15). Mchungaji ndiye anayeshughulika na mahitaji ya kondoo, pamoja na kuhakikisha wanapata chakula na maji na kuwalinda (Zaburi 23)
+Kiongozi hujali mahitaji ya wengine. Amri imetolewa mara mbili katika Agano Jipya kwa viongozi wa kanisa kuwa wachungaji wa kundi la Mungu (1 Pet. 5:1-4; Mdo. 20:28) Yesu pia alimwambia Petro lisha kondoo zangu (Yohana 21:15). Mchungaji ndiye anayeshughulika na mahitaji ya kondoo, pamoja na kuhakikisha wanapata chakula na maji na kuwalinda (Zaburi 23)
 
 Yesu ni mfano wetu mzuri kama mchungaji mwema anayetoa maisha yake kwa ajili ya kondoo (Yohana 10:11). Siyo kila mtu aliye kiongozi kanisani ambaye kweli anajali watu. Wengine hukimbia wakati mambo yanapokuwa magumu na kuacha watu wakitawanywa na adui (Yohana 10:12-13).
 
@@ -60,7 +60,7 @@ Viongozi kanisani wanatakiwa kuhakikisha kuwa watu wanaelewa Neno la Mungu na ku
 
 Katika Matendo sura ya 6, kuna habari kuhusu mitume. Walikuwa wanawalisha wajane kila siku. Walisema walihitaji kutafuta mtu mwingine kufanya hiyo kazi, kwa sababu wakati walipokuwa wanawalisha chakula cha kimwili, hawakuwa na muda wa kuhudumia neno (Mdo. 6:1-6).
 
-Kuhudumia mahitaji ya kimwili ya watu ni dhana iliyopingwa na huduma ya Kikristo, kwasababu kama mitume, tunasema hatuwezi kuacha kuhubiri neno na kuhudumia meza. Lakini bado walihakikisha watu wameshibishwa, pamoja na kwamba hawakufanya hivyo wenyewe. Walitafuta viongozi wengine ambao wangefanya hiyo kazi. Kama kanisa, hatuwezi tenganisha mahitaji ya kiroho na mahitaji ya kimwili ya watu. Kuna maeneo mengi katika agano jipya ambayo husema kuhusu utunzaji wa mahitaji ya kimwili ya watu:
+Kuhudumia mahitaji ya kimwili ya watu ni dhana iliyopingwa na huduma ya Kikristo, kwasababu kama mitume, tunasema hatuwezi kuacha kuhubiri neno na kuhudumia meza. Lakini bado walihakikisha watu wameshibishwa, pamoja na kwamba hawakufanya hivyo wenyewe. Walitafuta viongozi wengine ambao wangefanya hiyo kazi. Kama kanisa, hatuwezi tenganisha mahitaji ya kiroho na mahitaji ya kimwili ya watu. Kuna maeneo mengi katika Agano Jipya ambayo husema kuhusu utunzaji wa mahitaji ya kimwili ya watu:
 
 1. Yesu Siyo tu kwamba aliwafundisha watu, bali aliwapa chakula cha kimwili pia (Mt. 15:29-32)
 2. Yesu ataadhibu wote wanaodharau maskini (Mt. 25:31-46)

@@ -88,13 +88,13 @@ A prophet is one who speaks as a direct messenger for God. Here are some prophet
 The Shepherd of Hermas, which was a document used by the early church, tells how to know if a prophet is real or not:
 
 > Shepherd of Hermas, Mandate 11:7-8  
-> “How, then,” said I, “sir, shall a man know which of them is a true prophet and which a false prophet?” “Listen,” said he, “concerning both the prophets, and as I shall tell you, so you shall judge the true prophet and the false prophet. Test the man who has the Divine Spirit by his life. In the first place, he who has the spirit which is from above, is meek and gentle, and lowly-minded, and refrains from all wickedness and evil desire of this world, and make himself poorer than all men, and gives no answers to anyone when he is consulted, nor does he speak by himself (for the Holy Spirit does not speak when a man wishes to speak), but he speaks at that time when God wishes him to speak.
+> “How, then,” said I, “sir, shall a man know which of them is a true prophet and which a false prophet?” “Listen,” said he, “concerning both the prophets, and as I shall tell you, so you shall judge the true prophet and the false prophet. Test the man who has the Divine Spirit by his life. In the first place, he who has the spirit which is from above, is meek and gentle, and lowly-minded, and refrains from all wickedness and evil desire of this world, and make himself poorer than all men, and gives no answers to anyone when he is consulted, nor does he speak by himself (for the Holy Spirit does not speak when a man wishes to speak), but he speaks at that time when God wishes him to speak."
 
 ## Evangelist
 
 The meaning of Greek word is "to announce news."
 
-Philip was an evangelist (Acts 21:8). (In the SUV it is just translated as "preacher of the Gospel.) Evangelists went to new places to convert people to Christianity and to start new churches. But they also had some aspect of ministry in the church, because Paul told Timothy, who was a leader in the church, to do the work of an evangelist (2 Tim. 4:5).
+Philip was an evangelist (Acts 21:8). (In the SUV it is just translated as "preacher of the Gospel.") Evangelists went to new places to convert people to Christianity and to start new churches. But they also had some aspect of ministry in the church, because Paul told Timothy, who was a leader in the church, to do the work of an evangelist (2 Tim. 4:5).
 
 <!--
 > In the post-apostolic period it is the evangelists who continue to carry out many of the activities of the apostles and it is the pastors who now exercise the leadership role, alongside the teachers, previously held by the prophets
@@ -121,12 +121,12 @@ The Didache tells how to know a good teacher:
 
 ## Overseer/Bishop
 
-The Greek word is _episkopē_, which means "overseer." In fact, the Neno Biblia Takatifu translates this to be "mwangalizi." The title _overseer_ "in its original usage, at least until the time of Ignatius, ...was restricted to those who exercised oversight in the local church. ...the office referred to is quite general and might encompass any position, secular or ecclesiastical, where ‘oversight’ was necessary."<sup>[5]</sup>
+The Greek word is _episkopē_, which means "overseer." In fact, the _Neno Biblia Takatifu_ translates this to be "mwangalizi." The title _overseer_ "in its original usage, at least until the time of Ignatius, ...was restricted to those who exercised oversight in the local church. ...the office referred to is quite general and might encompass any position, secular or ecclesiastical, where ‘oversight’ was necessary."<sup>[5]</sup>
 
 Some people think that overseers and deacons were the same thing, but Philippians 1:1 show them as two separate positions. 1 Timothy 3:1-7 gives a list of qualifications for the overseer. The Didache also gives a list of qualifications:
 
 > Didache 15:1-4  
-> Appoint therefore for yourselves bishops and deacons worthy of the Lord, meek men, and not lovers of money, and truthful and approved, for they also minister to you the ministry of the prophets and teachers. Therefore do not despise them, for they are your honorable men together with the prophets and teachers. And reprove one another not in wrath but in peace as you find in the Gospel, and let none speak with any who has done a wrong to his neighbor, nor let him hear a word from you until he repents. But your prayers and alms and all your acts perform as ye find in the Gospel of our Lord.
+> Appoint therefore for yourselves overseers and deacons worthy of the Lord, meek men, and not lovers of money, and truthful and approved, for they also minister to you the ministry of the prophets and teachers. Therefore do not despise them, for they are your honorable men together with the prophets and teachers. And reprove one another not in wrath but in peace as you find in the Gospel, and let none speak with any who has done a wrong to his neighbor, nor let him hear a word from you until he repents. But your prayers and alms and all your acts perform as ye find in the Gospel of our Lord.
 
 <!--Acts 20:28 (KJV 1900)
 28Take heed therefore unto yourselves, and to all the flock, over the which the Holy Ghost hath made you overseers, to feed the church of God, which he hath purchased with his own blood.
@@ -146,7 +146,7 @@ Some people think that overseers and deacons were the same thing, but Philippian
 > Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 165). Word, Incorporated.
 -->
 
-### Ignatius on church hierarchy
+### The teaching of Ignatius on church hierarchy
 
 By the time of Ignatius in the second century (107 AD), there was one "head" bishop for each city. These were over the elders, who were over the deacons.<sup>[6]</sup> Ignatius taught that the the bishop spoke directly for God and that to disobey the bishop was to disobey God.
 
@@ -159,13 +159,13 @@ Even if the idea of the bishop being more powerful than other people in the chur
 
 ## Deacon/Servant
 
-1 Timothy 3:8-13 gives the qualifications for deacons. The word in Greek is _diakonis_, which means "servant." The Biblia Habari Neno translates it as "wasaidizi." Greek has a different word for slave (duolos), which is not what is used here.
+1 Timothy 3:8-13 gives the qualifications for deacons. The word in Greek is _diakonis_, which means "servant." The _Biblia Habari Neno_ translates it as "wasaidizi." Greek has a different word for slave (duolos), which is not what is used here.
 
 ### Unofficial positions
 
 This can be used as an unofficial title. Jesus said all leaders in the kingdom of God have to be servants (diakonis in Greek) (Matt. 20:26). Some people who are deacons or elders could also be called servants. Paul and Apollos were called servants (1 Cor. 3:5). This word did not originally come from the church, but it was a common word used to describe many different occupations.<sup>[8]</sup>
 
-> The creative power of the early Church was strong enough to fashion its own offices for the conduct of congregational life and divine worship.… Early Christianity took over words which were predominantly secular in their current usage and which had not yet been given any sharply defined sense. It linked these words with offices which were being fashioned in the community, and thus gave them a new sense which was so firmly welded with the activity thereby denoted that in all languages they have been adopted as loan-words to describe Christian office-bearers.<sup>[9]</sup>
+> The creative power of the early Church was strong enough to fashion its own offices for the conduct of congregational life and divine worship. ...Early Christianity took over words which were predominantly secular in their current usage and which had not yet been given any sharply defined sense. It linked these words with offices which were being fashioned in the community, and thus gave them a new sense which was so firmly welded with the activity thereby denoted that in all languages they have been adopted as loan-words to describe Christian office-bearers.<sup>[9]</sup>
 
 ### Official position in the church
 
@@ -178,7 +178,7 @@ People who do not believe that woman can hold positions in the church say that P
 
 We sometimes think that the deacon is a lesser position than the overseer, but "there is no suggestion in the text that the deacon is subordinate to the overseer. Both performed vital functions in the church, and it is the deacon who is expressly told that a reward awaits those who serve well."<sup>[10]</sup>
 
-When comparing the requirements for overseer and deacon in 1 Timothy chapter 3, we the difference that deacons were not required to teach.
+When comparing the requirements for overseer and deacon in 1 Timothy chapter three, we the difference that deacons were not required to teach.
 
 > The requirements for a deacon suggest that there would be substantial contact with people: not double-tongued; a dignified wife; faithful in marriage; a well-managed family. The requirement that they not be greedy may suggest some responsibility for the church’s purse, perhaps in the disbursement of funds to the poor.<sup>[11]</sup>
 

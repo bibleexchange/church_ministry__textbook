@@ -16,7 +16,7 @@ Washirika wote katika kanisa wanatakiwa washikamane pamoja na kufanya kazi pamoj
 
 ### Kila mshirika ana kazi tofauti au karama
 
-Kila mshirika katika kanisa ana jukumu tofauti la kufanya ambalo haliwezi kufanywa na mtu mwingine yeyote, kama tu ambavyo mkono hauwezi kufanya kazi ya mguu,vivyo hivyo na mguu kufanya kazi ya mkono.Tuna orodha mbili za karama katika agano jipya:
+Kila mshirika katika kanisa ana jukumu tofauti la kufanya ambalo haliwezi kufanywa na mtu mwingine yeyote, kama tu ambavyo mkono hauwezi kufanya kazi ya mguu, vivyo hivyo na mguu kufanya kazi ya mkono. Tuna orodha mbili za karama katika Agano Jipya:
 
 1. Warumi 12:6–8: kuhudumu, kufundisha, kutia moyo, kuchangia kwa ajili, uongozi, na kuhurumia (Tafsiri hii inatoka _Neno: Biblia Takatifu_).
 2. 1 Wakorintho 12:28: mitume, manabii, waalimu, miujiza, karama za kuponya wagonjwa, masaidiano, maongozi, na aina za lugha.
@@ -29,7 +29,7 @@ Tunaona kuwa orodha hizi zina karama tofauti ndani yake, lakini zote zina unabii
 
 #### Mfano wa karama zinazotumika katika kanisa
 
-Mfano wa namna karama hizi tofauti tofauti zinavyotenda kazi inaweza kupatikana katika Matendo 6:1-6. Mitume waliwalisha wajane kila siku, lakini walisema kuwa walitakiwa kuacha, ili kwamba waweze kuzingatia zaidi maombi na huduma ya neno.Walichagua vijana saba kufanya kazi ya kuwalisha wajane. Vijana hawa walijaa "na Roho, na hekima." Haimaanishi hawakuwa na umuhimu kuliko mitume bali walikuwa na kazi tofauti ya kufanya.
+Mfano wa namna karama hizi tofauti tofauti zinavyotenda kazi inaweza kupatikana katika Matendo 6:1-6. Mitume waliwalisha wajane kila siku, lakini walisema kuwa walitakiwa kuacha, ili kwamba waweze kuzingatia zaidi maombi na huduma ya neno. Walichagua vijana saba kufanya kazi ya kuwalisha wajane. Vijana hawa walijaa "na Roho, na hekima." Haimaanishi hawakuwa na umuhimu kuliko mitume bali walikuwa na kazi tofauti ya kufanya.
 
 Baadaye Stefano "alifanya maajabu na miujiza katikati ya watu" (Mdo. 6:8) na aliuliwa kwasababu alikuwa anahubiri kuhusu Yesu. Philipo alikwenda Samaria na kuhubiri Injili, kuponya wagonjwa na kutoa mapepo (Mdo. 8:5-13). Vijana wote hawa walikuwa na nguvu kuu ya rohoni lakini walikuwa wanyenyekevu hata kuhudumia meza.
 
