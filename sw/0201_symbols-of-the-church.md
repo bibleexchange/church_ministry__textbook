@@ -35,7 +35,7 @@ Baadaye Stefano "alifanya maajabu na miujiza katikati ya watu" (Mdo. 6:8) na ali
 
 ## Hekalu/Jengo
 
-Japokuwa mara nyingi tunazungumza kuhusu jengo kama kanisa, kanisa ni watu na sio jengo. Sisi ni hekalu la Roho Mtakatifu.Hivyo, ishara ya kanisa ni kuwa sisi ni matofali katika jengo:
+Japokuwa mara nyingi tunazungumza kuhusu jengo kama kanisa, kanisa ni watu na sio jengo. Sisi ni hekalu la Roho Mtakatifu. Hivyo, ishara ya kanisa ni kuwa sisi ni matofali katika jengo:
 
 - "Ninyi ni shamba la Mungu, ni jengo la Mungu" (1 Kor. 3:9)
 - "Ninyi nanyi, kama mawe yaliyo hai, mmejengwa mwe nyumba ya Roho" (1 Pet. 2:5)

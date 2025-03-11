@@ -33,8 +33,6 @@ Katika injili zote nne, Yesu anawaambia wanafunzi wake kwamba wanatakiwa kuwa wa
 3. Luka 22:24-27
 4. Yohana 13:12-17
 
-Matthew 20:20-28- Mathayo 20:20-28 2. Mark 9:33-37; 10:35-45 - Marko 9:33-37;10:35-45 3. Luke 22:24-27- Lk. 22:24-27 4. John 13:12-17- Yohana 13:12-17
-
 Tunawaita viongozi wa kanisa "watumishi" wa Mungu, lakini mara nyingi hawatumiki, badala yake wanatumikiwa. Kama viongozi tusiangalie kupewa huduma maalumu kama chakula maalumu, heshima, au mpangilio wa ukaaji. Wakati Yesu alipowasafisha miguu wanafunzi, hiyo ilikuwa kweli kazi ya mtumishi. Tunatakiwa tuwe tayari kusafisha sakafu, kuosha vyombo, au kusafisha vyoo kama tunataka kuwa viongozi wa kanisa.
 
 ### Kiongozi ni kuwa mchungaji

@@ -1,15 +1,12 @@
-# Characteristics of a good leader
+# Sifa za kiongozi mzuri
 
-#Sifa za kiongozi mzuri
-
-We have lists of characteristics that are good for overseers (1 Tim. 3:1-7), deacons (1 Tim. 3:8-13), and elders (Titus 1:5-9). While these lists are good for us to understand what Paul was looking for in a good leader, we have to remember them in their original setting. These are letters written to specific people for a reason. In part, Paul was writing to Timothy and Titus to try to stop false teachers that were causing problems in the church (1 Tim. 1:6-7; Titus 1:10-11). These were things that were opposite of what the false teachers were doing. The following table shows how the qualities of the leaders in the church are opposites of what the false teachers were doing:<sup>[1]</sup>
-Tuna orodha ya sifa ambazo ni nzuri kwa Waangalizi(1 Tim. 3:1-7), Mashemasi(1 Tim. 3:8-13), na wazee (Tit. 1:5-9). Wakati orodha hizi ni nzuri kwetu kuelewa Paulo alikuwa anatazamia kwa kiongozi mzuri, tunatakiwa kuzikumbuka katika muundo wake halisi. Hizi ni barua zilizoandikwa kwa watu mahususi kwa sababu. Kwa sehemu, Paulo alikuwa anamwandikia Timotheo na Tito kujaribu kuzuia mafundisho potofu ambayo yalikuwa yanasababisha matatizo katika kanisa (1 Tim.1:6-7; Tit. 1:10-11). Hivi ni vitu ambavyo vilikuwa kinyume na kile walimu wa uongo walikuwa wanafanya:<sup>[1]</sup>
+Tuna orodha ya sifa ambazo ni nzuri kwa waangalizi (1 Tim. 3:1-7), mashemasi (askofu) (1 Tim. 3:8-13), na wazee (Tit. 1:5-9). Wakati orodha hizi ni nzuri kwetu kuelewa Paulo alikuwa anatazamia kwa kiongozi mzuri, tunatakiwa kuzikumbuka katika muundo wake halisi. Hizi ni barua zilizoandikwa kwa watu mahususi kwa sababu. Kwa sehemu, Paulo alikuwa anamwandikia Timotheo na Tito kujaribu kuzuia mafundisho potofu ambayo yalikuwa yanasababisha matatizo katika kanisa (1 Tim. 1:6-7; Tit. 1:10-11). Hivi ni vitu ambavyo vilikuwa kinyume na kile walimu wa uongo walikuwa wanafanya:<sup>[1]</sup>
 
 We should not think that these are complete lists of what makes a good leader. Nor should we think these are all absolutes, especially the requirements to be the husband of one wife or have a household to manage, since Paul himself was not married and thus did not have a household.
 Hatutakiwi kufikiri kuwa hizi ni orodha kamilifu zinazomfanya kiongozi mzuri. Wala kufikiri kuwa hizi zote ni sahihi, hasa mahitaji ya kuwa mume wa mke mmoja au kuwa familia ya kuisimamia, kwa kuwa Paulo mwenyewe hakuoa na hata kuwa na familia.
 
 Besides these longer lists in 1 Timothy and Titus, we have shorter lists that list qualities for leaders:
-Zaidi ya hayo hizi orodha ndefu katika 1Timotheo na Tito, tuna orodha fupi ambazo zinaorodhesha sifa za viongozi:
+Zaidi ya hayo hizi orodha ndefu katika 1 Timotheo na Tito, tuna orodha fupi ambazo zinaorodhesha sifa za viongozi:
 
 The Didache had a similar list in 15:1-2:
 Didache ina orodha inayofanana katika 15:1-2:
@@ -21,10 +18,10 @@ Polycarp had a similar lists in his epistle to the Ephesians:
 Polikapi alikuwa na orodha inayofanana katika waraka wake kwa waefeso
 
 > Likewise must the deacons be blameless before his righteousness, as the servants of God and Christ and not of man, not slanderers, not double tongued, not lovers of money, temperate in all things, compassionate, careful, walking according to the truth of the Lord, who was the "servant of all."
-> Vivyo hivyo mashemasi wanatakiwa wawe watu wasio na hatia katika haki yake, kama watumishi wa Mungu na siyo wa mwanadamu, wasiohukumiwa, wasio na nia mbili, wasiopenda fedha, wenye kiasi kwa kila kitu, wenye huruma, waangalifu, wanaotembea sawasawa na kweli ya Bwana, ambaye alikuwa” mtumishi wa wote.”
+> Vivyo hivyo mashemasi wanatakiwa wawe watu wasio na hatia katika haki yake, kama watumishi wa Mungu na siyo wa mwanadamu, wasiohukumiwa, wasio na nia mbili, wasiopenda fedha, wenye kiasi kwa kila kitu, wenye huruma, waangalifu, wanaotembea sawasawa na kweli ya Bwana, ambaye alikuwa" mtumishi wa wote."
 
 > And let the presbyters also be compassionate, merciful to all, bringing back those that have wandered, caring for all the weak, neglecting neither widow, nor orphan nor poor, but "ever providing for that which is good before God and man," refraining from all wrath, respect of persons, unjust judgment, being far from all love of money, not quickly believing evil of any, not hasty in judgment, knowing that "we all owe the debt of sin."<sup>[3]</sup>
-> Na wazee pia wawe na huruma, wenye huruma kwa wote, kuwarudisha wale waliopotea, kuwajali wadhaifu wote, kutokuwatenga wajane wala maskini, bali kutenda lile lililo jema kwa Mungu na wanadamu,” kuacha hasira, heshima kwa watu, hukumu zisizo za haki, kuwa mbali na kupenda fedha, kutokuwa wepesi kuamini uovu wowote, kutokuhukumu kwa haraka, tukijua kwamba wote tu wadeni wa dhambi.”<sup>[3]</sup>
+> Na wazee pia wawe na huruma, wenye huruma kwa wote, kuwarudisha wale waliopotea, kuwajali wadhaifu wote, kutokuwatenga wajane wala maskini, bali kutenda lile lililo jema kwa Mungu na wanadamu," kuacha hasira, heshima kwa watu, hukumu zisizo za haki, kuwa mbali na kupenda fedha, kutokuwa wepesi kuamini uovu wowote, kutokuhukumu kwa haraka, tukijua kwamba wote tu wadeni wa dhambi."<sup>[3]</sup>
 
 We will not go over every item in these lists, but we will combine these lists together and highlight a few things that are repeated among them.
 Hatutaangalia kila kipengele katika orodha hizi, bali tutachanga orodha hizi pamoja na kuonyesha vitu vichache ambavyo vimerudiwa kati yake.
@@ -37,34 +34,34 @@ All preachers can say they are called of God, but how do we know if they will re
 Wahubiri wote wanaweza kusema waliitwa na Mungu, lakini tunawezaje kujua kama watakuwa viongozi wazuri katika kanisa? Tumeshasema mwanzo kuwa kinachomfanya kiongozi mzuri katika mambo ya dunia sicho kinachomfanya kiongozi mzuri katika kanisa.
 
 We should not just look for someone who has a strong personality or is a "powerful" preacher. We need to look at how they live their lives. Jesus said we would know a tree by its fruit (Matt. 7:15-20). The only "ministry" ability in the lists in 1 Timothy and Titus is that the overseers and elders should be able to teach. That shows us that Paul considered character to be more important than the ability to speak.
-Hatutakiwi tu kumuangalia mtu ambaye ana muonekano imara au “ni muhubiri mwenye nguvu.” Tunatakiwa kuangalia wanaishije maisha yao. Yesu alisema tutautambua mti kwa matunda yake (Mat. 7:15-20).” Huduma” pekee katika orodha katika 1 Timotheo na Tito ni kwamba waangalizi na wazee wanatakiwa wawe na uwezo wa kufundisha. Hiyo inatuonyesha kwamba Paulo alichukulia tabia kuwa ya muhimu Zaidi kuliko uwezo wa kuongea.
+Hatutakiwi tu kumuangalia mtu ambaye ana muonekano imara au "ni muhubiri mwenye nguvu." Tunatakiwa kuangalia wanaishije maisha yao. Yesu alisema tutautambua mti kwa matunda yake (Mat. 7:15-20)." Huduma" pekee katika orodha katika 1 Timotheo na Tito ni kwamba waangalizi na wazee wanatakiwa wawe na uwezo wa kufundisha. Hiyo inatuonyesha kwamba Paulo alichukulia tabia kuwa ya muhimu Zaidi kuliko uwezo wa kuongea.
 
 These good characteristics are not things special for only leaders, but they are expected of all Christians. The leader is supposed to be an example of these characteristics. Sifa hizi nzuri sio tu vitu maalumu kwa viongozi pekee, bali zinatarajiwa kwa kila mkristo.
 
 ### Good reputation (1 Tim. 3:2, 7, 8; Titus 1:7)
 
-### Sifa nzuri (1 Tim.3:2,8; Tit. 1:7)
+### Sifa nzuri (1 Tim. 3:2, 8; Tit. 1:7)
 
 All people inside and outside the church should know that the church leader is a good person:
 Watu wote ndani na nje ya kanisa lazima wajue kuwa kiongozi ni mtu mzuri:
 
 - They must be "above reproach" (1 Tim. 3:2)
-  -Wanatakiwa kuwa watu wasiolaumika (1 Tim.3:2)
+  -Wanatakiwa kuwa watu wasiolaumika (1 Tim. 3:2)
 - They must be "respectable" (1 Tim. 3:2)
-  -Wanatakiwa kuwa “wakuheshimika”(1 Tim.3:2)
+  -Wanatakiwa kuwa "wakuheshimika"(1 Tim. 3:2)
 - They must "must have a good report of them which are without" (1 Tim. 3:7)
-  -Ni lazima “washuhudiwe mema na watu walio nje”(1 Tim.3:7)
+  -Ni lazima "washuhudiwe mema na watu walio nje"(1 Tim. 3:7)
 - They must be "worthy of respect" (1 Tim. 3:8)
-  -Ni lazima ”wastahili heshima”(1 Tim.3:8)
+  -Ni lazima "wastahili heshima"(1 Tim. 3:8)
 - They must be "be blameless" (Titus 1:7)
-  -Ni lazima “wasiwe watu wa kulaumiwa”(Tit. 1:7)
+  -Ni lazima "wasiwe watu wa kulaumiwa"(Tit. 1:7)
 
 This was also listed as one of the requirements for the helpers in Acts chapter 6 (Acts 6:3).
 Hii iliorodheshwa pia kama moja ya mahitaji kwa wasaidizi katika Matendo mlango wa 6 (Mdo. 6:3).
 
 ### Temperate (kiasi) (1 Tim. 3:2, 11)
 
-### Kiasi (1 Tim.3:2,11)
+### Kiasi (1 Tim. 3:2, 11)
 
 > The overseer is to maintain command of his reason, to be watchful and observant of things going on around him, and balanced in his assessments.<sup>[4]</sup>
 > Kuwa mwangalizi ni kudumisha amri ya sababu yake. kuwa macho na kuyaangalia kwa umakini mambo yanayomzunguka, na kuweka uwiano katika tathmini yake.<sup>[4]</sup>
@@ -77,42 +74,42 @@ Hii ilitakiwa ifundishwe pia kwa wazee (Tit. 2:2)
 ### Kiasi (1 Tim. 3:2; Tito 1:8)
 
 The term "self-control" "covers a range of meaning (prudence, moderation, sobriety), but gives the general sense of control over the behavior and the impulses and emotions beneath it."<sup>[5]</sup> Not everything is good for us. We need to learn to say "no" to the things that we want. When we come to Christ, we have to learn to deny ungodliness and worldly passions (Titus 2:11-12).
-Neno ”kiasi” linagusa maana mbalimbali(upole, kiasi, ukatili)lakini inatoa hisia za jumla za kiasi juu ya tabia na misukumo na hisia chini yake.”<sup>[5]</sup> sio kila kitu ni kizuri kwetu. Tunatakiwa tujifunze kusema “hapana” katika vitu tunavyovihitaji. Tunapokuja kwa Yesu, tunatakiwa tujifunze kukataa uasi na tamaa za kidunia(Tito 2:11-12).
+Neno "kiasi" linagusa maana mbalimbali (upole, kiasi, ukatili)lakini inatoa hisia za jumla za kiasi juu ya tabia na misukumo na hisia chini yake."<sup>[5]</sup> sio kila kitu ni kizuri kwetu. Tunatakiwa tujifunze kusema "hapana" katika vitu tunavyovihitaji. Tunapokuja kwa Yesu, tunatakiwa tujifunze kukataa uasi na tamaa za kidunia (Tit. 2:11-12).
 
 This is for all believers and not just for leaders (1 Tim. 2:9, 15; Titus 2:2, 4-6).
 Hii ni kwaajili ya waamini wote na sio tu viongozi (1 Tim. 2:9, 15; Tit. 2:2 , 4-6).
 
 ### Not angry (1 Tim. 3:3; Titus 1:7)
 
-### Asiwe mwepesi wa hasira(1 Tim. 3:3; Tito 1:7)
+### Asiwe mwepesi wa hasira (1 Tim. 3:3; Tit. 1:7)
 
 - They must not be "a striker" (1 Tim. 3:3; Titus 1:7)
-  -Asiwe “mgomvi”(1 Tim.3:3; Tito 1:7)
+  -Asiwe "mgomvi" (1 Tim. 3:3; Tito 1:7)
 - They must not be "a brawler" (1 Tim. 3:3)
-  -Si “mpiga watu”(1 Tim.3:3)
+  -Si "mpiga watu"(1 Tim. 3:3)
 - They must not be "soon angry" (Titus 1:7)
-- Wasiwe “wepesi wa hasira”(Tito 1:7)
+- Wasiwe "wepesi wa hasira"(Tito 1:7)
 
 ### Not greedy for money (1 Tim. 3:8; Titus 1:7)
 
-### Si walafi wa fedha (1 Tim.3:8; Tito 1:7)
+### Si walafi wa fedha (1 Tim. 3:8; Tito 1:7)
 
 A leader in the church should not love money. We will talk more about leaders and money later.
 Kiongozi katika kanisa asiwe mwenye kupenda fedha. Tutaongea Zaidi kuhusu viongozi na fedha baadaye.
 
 ### Must take good care of his family (1 Tim. 3:4, 12; Titus 1:6)
 
-### Anatakiwa aitunze familia yake vizuri(1 Tim. 3:4; Tito 1:6)
+### Anatakiwa aitunze familia yake vizuri (1 Tim. 3:4; Tit. 1:6)
 
 The leader in the church must first be a good leader in the home. If he cannot take care of his family, how can he take care of the church?
 Kiongozi katika kanisa lazima kwanza awe kiongozi mzuri katika familia yake. Kama hawezi kuitunza familia yake, atawezaje kulitunza kanisa?
 
 ### Hospitable (1 Tim. 3:2; Titus 1:8)
 
-### Mkarimu (1 Tim.3:2; Tito 1:8)
+### Mkarimu (1 Tim. 3:2; Tito 1:8)
 
 "Given the dangers of travel in the empire and the economic uncertainties faced by many believers, the early Christian mission and churches depended upon those who would open their homes and share their goods."<sup>[6]</sup> Jesus did not have His own house, but needed to stay in the house of other people. All Christians were supposed to be ready to receive the guest into their homes (Rom. 12:13; Heb. 13:2; 1 Pet. 4:9; 3 John 1:8).
-Tunapewa hatari ya kusafiri katika himaya na kutokuwa na uhakika wa uchumi walioupitia waamini, huduma ya awali ya Kikristo na makanisa yalitegemea wale watakaofungua nyumba zao na kuwapokea wageni katika nyumba zao na kutoa vitu vyao,”<sup>[6]</sup> Yesu hakuwa na nyumba yake mwenyewe, bali alitaka kukaa katika nyumba za wengine. Wakristo wote walitakiwa kuwa tayari kupokea wageni katika nyumba zao (Rum. 12:13; Waebrania 13:2; 1 Pet.4:9; 3Yoh 1:8).
+Tunapewa hatari ya kusafiri katika himaya na kutokuwa na uhakika wa uchumi walioupitia waamini, huduma ya awali ya Kikristo na makanisa yalitegemea wale watakaofungua nyumba zao na kuwapokea wageni katika nyumba zao na kutoa vitu vyao,"<sup>[6]</sup> Yesu hakuwa na nyumba yake mwenyewe, bali alitaka kukaa katika nyumba za wengine. Wakristo wote walitakiwa kuwa tayari kupokea wageni katika nyumba zao (Rum. 12:13; Ebr. 13:2; 1 Pet. 4:9; 3 Yoh. 1:8).
 
 The Shepherd of Hermas, which was a document used for teaching in the early church, says:
 Mchungaji wa Hermas, ambayo ilikuwa ni taarifa iliyotumika kwaajili ya mafundisho katika kanisa la kwanza, inasema:
@@ -139,14 +136,14 @@ Viongozi bado wana hekima itokayo katika maisha, hivyo tunatakiwa kujifunza kuto
 ## Hali ya ndoa
 
 Does someone have to be married to be a leader in the church? Overseers (1 Tim. 3:2), deacons (1 Tim. 3:12), and elders (Titus 1:6) were all to be the husband of one wife. In Greek, there is no difference between the words "woman" and "wife." So in Greek, this prase is "one-woman man." There are four possible meanings to what Paul said.
-Je ni lazima mtu awe ameoa au kuolewa ndio awe kiongozi ndani ya kanisa? Mwangalizi (1 Tim. 3:2), Mashemasi (1 Tim.3:12), na Viongozi (Tito 1:6)naye ni mume wa mke mmoja. Kwa kigiriki, hakuna tofauti kati ya neno “ mwanamke” na “mke”. Hivyo kwa kigiriki hii tamaa ni mwanaume wa mwanamke mmoja.” Kuna maana rahisi nne za nini Paulo alisema.
+Je ni lazima mtu awe ameoa au kuolewa ndio awe kiongozi ndani ya kanisa? Mwangalizi (1 Tim. 3:2), Mashemasi (1 Tim. 3:12), na Viongozi (Tito 1:6)naye ni mume wa mke mmoja. Kwa kigiriki, hakuna tofauti kati ya neno " mwanamke" na "mke". Hivyo kwa kigiriki hii tamaa ni mwanaume wa mwanamke mmoja." Kuna maana rahisi nne za nini Paulo alisema.
 
 ### Possible meaning 1: The Leader must be married
 
 ### Maana rahisi ya 1: Kiongozi lazima awe ameoa au kuolewa
 
 This is not very likely, since Paul was not married (1 Cor. 7:8). He would not tell people to do something that he does not do himself. Other apostles had wives, and Paul had that right to take a wife. He chose not to take a wife so that he would have more freedom to travel and preach the gospel (1 Cor. 9:5).
-Hii haiwezekani, kwa kuwa Paulo hakuoa (1 K0r 7:8). Asingeweza kuwaambia watu wafanye kitu ambacho yeye hakuweza kufanya. Mitume wengine walikuwa na wake, na Paulo alikuwa na hiyo haki ya kuoa. Alichagua kutokuoa ili awe na uhuru Zaidi kusafiri na kuhubiri injili(1 Kor 9:5).
+Hii haiwezekani, kwa kuwa Paulo hakuoa (1 Kor. 7:8). Asingeweza kuwaambia watu wafanye kitu ambacho yeye hakuweza kufanya. Mitume wengine walikuwa na wake, na Paulo alikuwa na hiyo haki ya kuoa. Alichagua kutokuoa ili awe na uhuru zaidi kusafiri na kuhubiri injili (1 Kor. 9:5).
 
 Paul thought it was good for people who were not married to not seek to get married (1 Cor. 7:25–28). This is because those that are not married only have to care about spiritual things, but those that are married have to care about both spiritual and natural things (1 Cor. 7:32-35). Even Jesus taught that some people choose not to marry for the kingdom of God (Matthew 19:9-12).
 Paulo aliona kuwa ilikuwa vizuri kwa watu ambao hawajaoa kutokutafuta kuoa (1 Kor 7:25-28). Hii ni kwasababu wale ambao hawajaoa watajali tu kuhusu mambo ya kiroho, lakini wale waliooa watatakiwa kujali kuhusu mambo ya kiroho na ya kimwili (Math 19: 9-12).
@@ -169,7 +166,7 @@ Hichi sicho hasa alichokimaanisha Paulo, kwa kuwa sio wayahudi wengi au wakristo
 ### Maana rahisi ya 3: Kiongozi lazima awe mwaminifu kwa mke wake
 
 "This would allow for the possibility of an overseer being remarried after a death, divorce, or possibly adultery in the distant past but would disallow polygamy and sexual immorality (even if the overseer were not married, since the guidelines would be no less stringent for the unmarried than the married)."<sup>[9]</sup>
-“Hii ingeruhusu uwezekano wa mwangalizi kuweza kuoa tena baada ya kifo, talaka au uzinzi lakini ingekataza ndoa za mitara na uasherati (hata kama maaskofu hawakuwa wameoa, kwa kuwa miongozo isingekuwa imewafunga wasiooa Zaidi ya waliooa.”<sup>[9]</sup>
+"Hii ingeruhusu uwezekano wa mwangalizi kuweza kuoa tena baada ya kifo, talaka au uzinzi lakini ingekataza ndoa za mitara na uasherati (hata kama maaskofu hawakuwa wameoa, kwa kuwa miongozo isingekuwa imewafunga wasiooa Zaidi ya waliooa)."<sup>[9]</sup>
 
 ### Possible meaning 4: The Leader must not marry again
 
@@ -208,17 +205,17 @@ Katika agano la kale
 - Deborah (Judges 4:4)
   Debora (Waamuzi 4:4)
 - Huldah (2 Kings 22:14; 2 Chronicles 34:22)
-  Hilkia (2Fal 22:14; 2 Nyak 34:22)
+  Hilkia (2 Fal. 22:14; 2 Nyak. 34:22)
 - The wife of Isaiah (Isaiah 8:3)
-  -Mke wa Isaya (Isaya 8:3)
+- Mke wa Isaya (Isaya 8:3)
 - Sons and daughters will prophesy (Joel 2:28-29)
-  -Wana wa kike na wa kiume watatabiri(Yoeli 2:28-29)
+  -Wana wa kike na wa kiume watatabiri (Yoeli 2:28-29)
 
 In the New Testament:
 Katika Agano Jipya:
 
 - Elisabeth (Luke 1:41-42)
-  -Elizabeti(Lk. 1:41-42)
+  -Elizabeti (Lk. 1:41-42)
 - Mary Mother of Jesus (Luke 1:46–55)
   -Mariamu mama yake Yesu (Lk. 1:46-55)
 - Anna (Luke 2:36-38)
@@ -242,15 +239,15 @@ Katika Agano Jipya:
 - Junia (Rom. 16:7)
   -Yunia (Rum 16:7)
 - Mother of Rufus (Romans 16:13)
-  -Mama yake Rufo(Rum 16:13)
+  -Mama yake Rufo (Rum 16:13)
 - Mary, Tryphaena, Tryphosa, and Persis "who has worked hard in the Lord" (Romans 16:6, 12)
-  Mariamu, Trifaina, Trifosa na Persisi ”Aliyejitahidi sana katika Bwana”(Rum 16:6,12)
+  Mariamu, Trifaina, Trifosa na Persisi "Aliyejitahidi sana katika Bwana"(Rum 16:6, 12)
 - Euodia and Syntyche (Philippians 4:2–3)
   -Euodia na Sintike (Flp. 4:2-3)
 - Lois and Eunice (2 Tim. 1:5)
   -Loisi na Eunike (2 Tim. 1:5)
 - Older women who train the younger (Titus 2:3–5)
-  -Wazee wa kike wanaofundisha wadogo(Tito 2:3-5)
+  -Wazee wa kike wanaofundisha wadogo (Tit. 2:3-5)
 - Peter said daughters would prophesy
   -Petro alisema wana wa kike watatabiri
 
@@ -302,7 +299,7 @@ It is possible that the women in these churches were uneducated because they wer
 Ni rahisi kuwa wanawake katika haya makanisa walikuwa hawajasoma kwasababu hawakuruhusiwa kwenda shule au hata kwenye sinagogi. Kwasababu hawakuwa wameelewa kila kitu, walikuwa wanawauliza waume zao maswali na kuleta usumbufu katika kanisa.
 
 1 Corinthians 14:34 says that the law says that women "are not allowed to speak, but must be in submission." There is no Law in the Old Testament that says anything like that. It is possible that "the law" was not Jewish, but Roman. If that is so, there here it should be translated "husband" and "wife" instead of "man" and "woman." There were Roman laws that did not let a wife correct her husband in public.
-1 Wakorintho 14:34 inasema kwamba sheria inasema kwamba wanawake” hawaruhusiwi kuongea, lakini wawe katika kujitoa.” Hakuna sheria katika agano la kale inayosema kitu kama hicho. Inawezekana kuwa ”sheria" haikuwa ya kiyahudi lakini ya kirumi. Kama ndivyo ilivyo, inatakiwa itafsiriwe “mume” na “mke” badala ya “mwanaume” na “mwanamke”. Kulikuwa na sheria za kirumi ambazo hazikuruhusu mke kumsahihisha mume wake katika halaiki.
+1 Wakorintho 14:34 inasema kwamba sheria inasema kwamba wanawake" hawaruhusiwi kuongea, lakini wawe katika kujitoa." Hakuna sheria katika agano la kale inayosema kitu kama hicho. Inawezekana kuwa "sheria" haikuwa ya kiyahudi lakini ya kirumi. Kama ndivyo ilivyo, inatakiwa itafsiriwe "mume" na "mke" badala ya "mwanaume" na "mwanamke". Kulikuwa na sheria za kirumi ambazo hazikuruhusu mke kumsahihisha mume wake katika halaiki.
 
 #### Paul was speaking of his own idea and not an idea directly from God
 
