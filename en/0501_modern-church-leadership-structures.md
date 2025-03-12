@@ -10,12 +10,15 @@
 <!--Should use Scriptures that each use to justify their position-->
 <!--absolute power corrupts absolutely-->
 <!-- plurality of elders.-->
-<!-- probably need some discussion about the "keys" of heaven as used in Matthew 18:15–20-->
+<!-- probably need some discussion about the "keys" of heaven as used in Matthew 18:15–20 and Matt. 16:17-19-->
 
 <!--I don't see any one of these as necessarily more Scriptural that the others. Some things essential to all church structures:
 1. Leaders are for our good and are to be respected.
 2. While there are leaders in the church, they do not hold all the power. The whole church is the priesthood of God.
 3. Leadership needs to be held accountable somehow. Either by answering to the congregation or plurality of elders.-->
+
+> My missions professor in seminary, Dr. Vern Middleton, made an observation about church polity that has stayed with me until today. According to his observations a church’s polity is more a reflection of the political situation at the time the church was initially formed than it is of any biblical influence. Thus the Episcopal system was developed largely when Emperors, Kings, and Queens ruled; the Presbyterian system was developed largely when city and state councils ruled; the Congregational system was developed largely when democratic systems ruled; and Hybrid systems have developed only in the past 100 years or so.
+> https://michaeljfast.com/2022/01/17/did-you-know-that-church-polity-is-more-a-reflection-of-political-realities-than-some-kind-of-biblical-prescription-did-you-also-know-that-in-the-grand-scheme-of-things-it-really-isnt-a-big/
 
 TAG:
 An image of hierarchy at https://www.tag.or.tz/site/organization_structure
@@ -32,6 +35,8 @@ FPCT:
 > https://en.wikipedia.org/wiki/Episcopal_polity
 
 <!--The orthodox church has multiple leaders in the top position, instead of just one leader, like the pope in the Roman Catholic church. Both are Episcopal. -->
+
+Some believe in apostolic succession.
 
 ### Presbyterian polity
 
