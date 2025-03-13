@@ -23,6 +23,8 @@ If our heart is not right, we should take care of that first before bringing an 
 > 23 Therefore if thou bring thy gift to the altar, and there rememberest that thy brother hath ought against thee;
 > 24 Leave there thy gift before the altar, and go thy way; first be reconciled to thy brother, and then come and offer thy gift.
 
+God loves a cheerful giver
+
 ### Give with no expect of return
 
 We give offerings as thanks to what God has already done for us (2 Cor. 9:12).
@@ -100,6 +102,10 @@ There are warnings against the rich who do not help the poor:
 James 5:1-3 (ESV)
 "Now listen, you rich people, weep and wail because of the misery that is coming on you. Your wealth has rotted, and moths have eaten your clothes. Your gold and silver are corroded. Their corrosion will testify against you and eat your flesh like fire. You have hoarded wealth in the last days."
 
+### The early church had things in common
+
+Ananias and Saphira
+
 ## Should pastors get money for their work?
 
 Galatians 6:6 (TNIV)
@@ -139,6 +145,11 @@ In v. 14, he is referring to when Jesus sent out the 72:
 
 See also Matt. 10:10
 
+### Church leaders should be willing to work with their hands
+
+> For Paul’s manual labour, cf. 1 Cor. 4:12; 9:6; 1 Thess. 2:9; 2 Thess. 3:8; for his Christian ministry, cf. 1 Cor. 9:1; 15:10; Gal. 4:11; Phil. 1:22; 2:16; Col. 1:29; 1 Tim. 4:10; for the manual labour of others, cf. 1 Thess. 4:11; 2 Thess. 3:10–12; and, for the Christian ministry of others, cf. Rom. 16:6, 12; 1 Cor. 15:58; 16:10, 16; 2 Cor. 11:13, 15; Gal. 6:1; Eph. 4:12; Col. 3:23; 4:13 1 Thess. 1:3; 5:12–13; 1 Tim. 3:1; 5:10, 17–18; 2 Tim. 2:15, 21.  
+> Clarke, A. D. (2012). A Pauline Theology of Church Leadership (M. Goodacre, Ed.; Vol. 362). Bloomsbury.
+
 Paul could have taken money for himself, but instead he worked:
 
 > 1 Thessalonians 2:9–10 (TNIV)
@@ -166,12 +177,7 @@ Acts 18:1-4 shows that Paul made tents to support himself.
 Acts 20:33-35 (ESV)
 "I have not coveted anyone's silver or gold or clothing. You yourselves know that these hands of mine have supplied my own needs and the needs of my companions. In everything I did, I showed you that by this kind of hard work we must help the weak, remembering the words the Lord Jesus himself said: 'It is more blessed to give than to receive.'"
 
-We should not try to sell the gospel:
-
-> 2 Corinthians 2:17 (TNIV)
-> 17 Unlike so many, we do not peddle the word of God for profit. On the contrary, in Christ we speak before God with sincerity, as those sent from God.
-
-Jesus did receive help to do His ministry:
+### Jesus did receive help to do His ministry:
 
 Luke 8:1-3 (ESV)
 "After this, Jesus traveled about from one town and village to another, proclaiming the good news of the kingdom of God. The Twelve were with him, and also some women who had been cured of evil spirits and diseases: Mary (called Magdalene)... Joanna the wife of Chuza, the manager of Herod's household; Susanna; and many others. These women were helping to support them out of their own means."
@@ -182,7 +188,7 @@ Luke 10:4–5 (KJV 1900)
 4Carry neither purse, nor scrip, nor shoes: and salute no man by the way.
 5And into whatsoever house ye enter, first say, Peace be to this house.
 
-Some tried to make a profit off the Gospel:
+### Some tried to make a profit off the Gospel:
 
 1 Timothy 6:5–10 (KJV 1900)
 5Perverse disputings of men of corrupt minds, and destitute of the truth, supposing that gain is godliness: from such withdraw thyself.
@@ -195,7 +201,38 @@ Some tried to make a profit off the Gospel:
 Titus 1:11 (KJV 1900)
 11Whose mouths must be stopped, who subvert whole houses, teaching things which they ought not, for filthy lucre’s sake.
 
-Leaders should not be looking for money:
+### We should not try to sell the gospel:
+
+> 2 Corinthians 2:17 (TNIV)
+> 17 Unlike so many, we do not peddle the word of God for profit. On the contrary, in Christ we speak before God with sincerity, as those sent from God.
+
+The man that tried to buy the Holy Ghost in Acts...
+
+Acts 8:9-24
+
+#### The Gospel is free
+
+Romans 3:23-24 - "For all have sinned and fall short of the glory of God, and all are justified freely by his grace through the redemption that came by Christ Jesus."
+
+Romans 5:15-17 - "But the gift is not like the trespass. For if the many died by the trespass of the one man, how much more did God's grace and the gift that came by the grace of the one man, Jesus Christ, overflow to the many!"
+
+Romans 6:23 - "For the wages of sin is death, but the gift of God is eternal life in Christ Jesus our Lord."
+
+Ephesians 2:8-9 - "For it is by grace you have been saved, through faith—and this is not from yourselves, it is the gift of God—not by works, so that no one can boast."
+
+Revelation 22:17 - "The Spirit and the bride say, 'Come!' And let the one who hears say, 'Come!' Let the one who is thirsty come; and let the one who wishes take the free gift of the water of life."
+
+Isaiah 55:1 (quoted in NT contexts) - "Come, all you who are thirsty, come to the waters; and you who have no money, come, buy and eat! Come, buy wine and milk without money and without cost."
+
+2 Corinthians 9:15 - "Thanks be to God for his indescribable gift!"
+
+Acts 15:11 - "No! We believe it is through the grace of our Lord Jesus that we are saved, just as they are."
+
+Titus 3:4-7 - "But when the kindness and love of God our Savior appeared, he saved us, not because of righteous things we had done, but because of his mercy... so that, having been justified by his grace, we might become heirs having the hope of eternal life."
+
+Matthew 10:8 - Jesus instructs his disciples: "Freely you have received; freely give."
+
+### Leaders should not be looking for money:
 
 1 Peter 5:2 (KJV 1900)
 2Feed the flock of God which is among you, taking the oversight thereof, not by constraint, but willingly; not for filthy lucre, but of a ready mind;
@@ -215,8 +252,3 @@ Didache 13:
 
 > 1 BUT every true prophet who wishes to settle among you is “worthy of his food.” 2 Likewise a true teacher is himself worthy, like the workman, of his food. 3 Therefore thou shalt take the firstfruit of the produce of the winepress and of the threshing-floor and of oxen and sheep, and shalt give them as the firstfruits to the prophets, for they are your high priests. 4 But if you have not a prophet, give to the poor. 5 If thou makest bread, take the firstfruits, and give it according to the commandment. 6 Likewise when thou openest a jar of wine or oil, give the firstfruits to the prophets. 7 Of money also and clothes, and of all your possessions, take the firstfruits, as it seem best to you, and give according to the commandment.
 > Clement I, P., Ignatius, S., Bishop of Antioch, Polycarp, S., Bishop of Smyrna, & Lake, K. (1912–1913). The Apostolic fathers (K. Lake, Ed.; Vol. 1, p. 329). Harvard University Press.
-
-## Church leaders should be willing to work with their hands
-
-> For Paul’s manual labour, cf. 1 Cor. 4:12; 9:6; 1 Thess. 2:9; 2 Thess. 3:8; for his Christian ministry, cf. 1 Cor. 9:1; 15:10; Gal. 4:11; Phil. 1:22; 2:16; Col. 1:29; 1 Tim. 4:10; for the manual labour of others, cf. 1 Thess. 4:11; 2 Thess. 3:10–12; and, for the Christian ministry of others, cf. Rom. 16:6, 12; 1 Cor. 15:58; 16:10, 16; 2 Cor. 11:13, 15; Gal. 6:1; Eph. 4:12; Col. 3:23; 4:13 1 Thess. 1:3; 5:12–13; 1 Tim. 3:1; 5:10, 17–18; 2 Tim. 2:15, 21.  
-> Clarke, A. D. (2012). A Pauline Theology of Church Leadership (M. Goodacre, Ed.; Vol. 362). Bloomsbury.
