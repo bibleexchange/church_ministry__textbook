@@ -81,7 +81,6 @@ The continuation of the collection: 2 Cor. 8:4, 8:13; 9:1-12
 > 26 For Macedonia and Achaia were pleased to make a contribution for the poor among the Lord’s people in Jerusalem.
 > 27 They were pleased to do it, and indeed they owe it to them. For if the Gentiles have shared in the Jews’ spiritual blessings, they owe it to the Jews to share with them their material blessings.
 
-<!--
 Luke 3:11
 "John answered, 'Anyone who has two shirts should share with the one who has none, and anyone who has food should do the same.'"
 
@@ -104,7 +103,7 @@ James 5:1-3 (ESV)
 ## Should pastors get money for their work?
 
 Galatians 6:6 (TNIV)
-6Nevertheless, those who receive instruction in the word should share all good things with their instructor.
+Nevertheless, those who receive instruction in the word should share all good things with their instructor.
 
 <!--Gal. 6:6 is not so clear in KJV-->
 

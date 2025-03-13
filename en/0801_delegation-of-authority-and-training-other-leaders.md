@@ -4,8 +4,7 @@ Some leaders are afraid of sharing the authority with others. They want to have 
 
 We see in Exodus a story about Moses. Moses sat all day listening to the problems of the people and doing the work of a judge. He had a relative come to visit, and when the relative saw the work of Moses, he suggested that Moses share that work with others:
 
-> Exodus 18:21  
-> Moreover thou shalt provide out of all the people able men, such as fear God, men of truth, hating covetousness; and place such over them, to be rulers of thousands, and rulers of hundreds, rulers of fifties, and rulers of tens:
+> Exodus 18:21—Moreover thou shalt provide out of all the people able men, such as fear God, men of truth, hating covetousness; and place such over them, to be rulers of thousands, and rulers of hundreds, rulers of fifties, and rulers of tens:
 
 ## Make disciples of all nations
 
@@ -91,9 +90,9 @@ The Apostles wanted to find seven leaders to help serve food to the widows. They
 
 ### Paul
 
-1. Paul was called by Jesus (9:3-6)
-2. He was baptized by Ananias (9:17-18)
-3. He immediately started preaching (9:20-21)
+1. Paul was called by Jesus (Acts 9:3-6)
+2. He was baptized by Ananias (Acts 9:17-18)
+3. He immediately started preaching (Acts 9:20-21)
 4. Later, the elders in Antioch laid hands on him and sent him on his first missionary trip (Acts 13:1-3)
 
 <!--Need to deal with the differences in Galatians-->
