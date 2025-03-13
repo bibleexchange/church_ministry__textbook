@@ -2,7 +2,7 @@
 
 ## Leaders are established by God
 
-Daniel 2:21 teaches that God is the one who establishes government leaders in this world. There is no authority, unless it comes from God (Romans 13:1-2). God is the one who has given leaders to the church to help us grow in Christ (Eph. 4:11).
+Daniel 2:21 teaches that God is the one who establishes government leaders in this world. There is no authority, unless it comes from God (Rom. 13:1-2). God is the one who has given leaders to the church to help us grow in Christ (Eph. 4:11).
 
 ## Do not blindly follow all leaders
 
