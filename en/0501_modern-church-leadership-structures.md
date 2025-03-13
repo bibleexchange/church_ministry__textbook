@@ -4,6 +4,8 @@
 > Another question that polity addresses is that of an individual congregation’s relationship with other congregations. Are congregations connected administratively, within a hierarchy? Are they connected spiritually, part of an interdependent network of mutual submission? Or are they not connected at all?
 > https://tabletalkmagazine.com/article/2023/04/an-overview-of-church-polities/
 
+All of these structures agree on some fundamental truths about the church. They all believe that the church is made up of a body of people who are called to love each other and be a light to the world. But they disagree about who makes the decisions about "how" they perform these acts in the world. They all agree that God has given leaders to the church to help them grow up, but they disagree about how exactly they do that.
+
 <!-- It would be good to list Tanzanian churches that follow each of these structures-->
 <!--bullet points for each to show main characteristics. Compare to other types of polity so that the differences are understood.-->
 <!--There is some inconsistency and overlap in these. Some church might be mostly presbyterian, but have bishops (not with apostolic succession) that step in (and maybe overstep) and push certain issues or agendas or try to "fix" problems-->
@@ -38,12 +40,21 @@ FPCT:
 
 Some believe in apostolic succession.
 
+Who has the authority? Bishops.
+
 ### Presbyterian polity
+
+Who has the authority? Councils of elders.
 
 ### Congregational polity
 
 > The Southern Baptist Convention (SBC) operates through a unique form of governance known as congregational polity, meaning that each local church is autonomous while cooperating voluntarily with others for the sake of the Gospel.
 > https://www.sbc.net/about/what-we-do/sbc-governance/
+
+> congregationalism makes every member responsible for establishing churches, for proclaiming the gospel, and for protecting the gospel faithfulness of a church’s members. Presbyterians and episcopalians make the elders and/or bishops responsible for this work.
+> https://www.thegospelcoalition.org/article/hey-christians-polity-matters/
+
+Who has the authority? Either 1) an individual pastor, or 2) the congregation
 
 ### Connectional polity
 
