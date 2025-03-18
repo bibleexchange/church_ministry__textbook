@@ -160,7 +160,7 @@ This is the only specific time in the New Testament where we see the church aski
 > “blessing,” and “divine service.”16 All of this together suggests that the “collection” was not some mere matter of money, but was for Paul an active response to the grace of God that not only ministered to the needs of God’s people but also became a kind of ministry to God himself, which resulted in thanksgiving toward God and in a bond of fellowship between “God’s people” across the Empire.
 > Fee, G. D. (1987). The First Epistle to the Corinthians (p. 812). Wm. B. Eerdmans Publishing Co.-->
 
-#### Not only do we give in a collection in the church, but we give to the poor when they ask
+### Not only do we give in a collection in the church, but we give to the poor when they ask
 
 Sometimes we give in church and we think that we don't need to give any more. But the New Testament makes it clear that a large part of our giving should be our own personal contributions to the poor:
 
