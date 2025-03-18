@@ -80,7 +80,7 @@ Yesu aliwaita wanafunzi wake wengi kwa njia inayofanana. Walikuwa wanafanya kazi
 
 ### Mathiya (Mdo. 1:23-26)
 
-Mitume walitaka kuchagua mtu wa kuchukua nafasi ya Yuda Iskariote baada ya kujiua. Kulikuwa na vijana wawili ambao walifikiri wangekuwa wazuri wa kuchukua nafasi ya Yuda: Yusufu au Mathiya. Lakini watajuaje ni yupi? Kwanza, walimwomba Mungu awaonyeshe. Hiyo haikushangaza. Waliamini kuwa haikuwa tu kiholela, lakini kwamba Mungu angeongoza mikono yao kufanya maamuzi sahihi. Huu ndio wakati wa pekee katika agano jipya ambao tunaona kiongozi akichaguliwa katika njia hii, lakini mchakato huu ulitumika muda mwingine katika agano la kale kufanya maamuzi.
+Mitume walitaka kuchagua mtu wa kuchukua nafasi ya Yuda Iskariote baada ya kujiua. Kulikuwa na vijana wawili ambao walifikiri wangekuwa wazuri wa kuchukua nafasi ya Yuda: Yusufu au Mathiya. Lakini watajuaje ni yupi? Kwanza, walimwomba Mungu awaonyeshe. Hiyo haikushangaza. Waliamini kuwa haikuwa tu kiholela, lakini kwamba Mungu angeongoza mikono yao kufanya maamuzi sahihi. Huu ndio wakati wa pekee katika Agano Jipya ambao tunaona kiongozi akichaguliwa katika njia hii, lakini mchakato huu ulitumika muda mwingine katika Agano la Kale kufanya maamuzi.
 
 ### Wasaidizi waliowalisha wajane (Mdo. 6:1-6)
 

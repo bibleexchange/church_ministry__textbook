@@ -8,7 +8,7 @@ Danieli 2:21 inafundisha kwamba Mungu ndiye anayeanzisha viongozi wa serikali ka
 
 Hatutakiwi tu moja kwa moja kumfuata kila kiongozi ndani ya kanisa. Ni wanadamu kama tulivyo sisi na hivyo wanaweza kufanya makosa pia, kudanganywa au dhambi. Tunatakiwa kuwa makini kwamba hatuko kama watu vipofu kuongozwa na vipofu wengine (Mat. 15:14). Tunatakiwa kujichunguza maisha yetu na mafundisho ya viongozi kuona kama zinzstahili kufuatwa.
 
-Hata wayahudi kule Beroya mwanzo hawakuamini kila kitu kilichosemwa na Paulo lakini walienda nyumbani na kutafuta katika agano la kale kuona kama vitu walivyokuwa wanavisema vilikuwa kweli (Mdo. 17:11). Kwasababu kuna manabii wa uongo wengi duniani, tunatakiwa kuzijaribu roho (1 Yoh. 4:1). Yesu alisema kuwa tutawatambua manabii wa kweli kwa matunda yao (Mat. 7:15-16).
+Hata wayahudi kule Beroya mwanzo hawakuamini kila kitu kilichosemwa na Paulo lakini walienda nyumbani na kutafuta katika Agano la Kale kuona kama vitu walivyokuwa wanavisema vilikuwa kweli (Mdo. 17:11). Kwasababu kuna manabii wa uongo wengi duniani, tunatakiwa kuzijaribu roho (1 Yoh. 4:1). Yesu alisema kuwa tutawatambua manabii wa kweli kwa matunda yao (Mat. 7:15-16).
 
 Wakati mwingine tunaweza kujifunza kutoka kwa viongozi hata kama hawako kamili. Yesu aliwaambia watu wasikilize mafundisho ya mafarisayo lakini wasifuate matendo yao kwasababu hawakufanya yale waliyoyahubiri (Mat. 23:3).
 

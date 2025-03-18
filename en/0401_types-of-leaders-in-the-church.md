@@ -30,7 +30,7 @@ Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 162). Word, Incorporated.
 
 Need to research this, since KJV completely translates these positions differently.-->
 
-<!--Nowhere are any of these titles applied to Timothy. Paul’s admonition to Timothy as the “Lord’s servant” (2 Tim. 2:24–25) lists qualities that are similar to those listed for overseers and deacons, but it says nothing about Timothy being an overseer. He stands outside the local church structure as Paul’s delegate with the authority to enforce Paul’s decisions
+<!--Nowhere are any of these titles applied to Timothy. Paul’s admonition to Timothy as the "Lord’s servant" (2 Tim. 2:24–25) lists qualities that are similar to those listed for overseers and deacons, but it says nothing about Timothy being an overseer. He stands outside the local church structure as Paul’s delegate with the authority to enforce Paul’s decisions
 Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 162). Word, Incorporated.
 
 The Greek word for servant is doulos-->
@@ -88,7 +88,7 @@ A prophet is one who speaks as a direct messenger for God. Here are some prophet
 The Shepherd of Hermas, which was a document used by the early church, tells how to know if a prophet is real or not:
 
 > Shepherd of Hermas, Mandate 11:7-8  
-> “How, then,” said I, “sir, shall a man know which of them is a true prophet and which a false prophet?” “Listen,” said he, “concerning both the prophets, and as I shall tell you, so you shall judge the true prophet and the false prophet. Test the man who has the Divine Spirit by his life. In the first place, he who has the spirit which is from above, is meek and gentle, and lowly-minded, and refrains from all wickedness and evil desire of this world, and make himself poorer than all men, and gives no answers to anyone when he is consulted, nor does he speak by himself (for the Holy Spirit does not speak when a man wishes to speak), but he speaks at that time when God wishes him to speak."
+> "How, then," said I, "sir, shall a man know which of them is a true prophet and which a false prophet?" "Listen," said he, "concerning both the prophets, and as I shall tell you, so you shall judge the true prophet and the false prophet. Test the man who has the Divine Spirit by his life. In the first place, he who has the spirit which is from above, is meek and gentle, and lowly-minded, and refrains from all wickedness and evil desire of this world, and make himself poorer than all men, and gives no answers to anyone when he is consulted, nor does he speak by himself (for the Holy Spirit does not speak when a man wishes to speak), but he speaks at that time when God wishes him to speak."
 
 ## Evangelist
 
@@ -142,7 +142,7 @@ Some people think that overseers and deacons were the same thing, but Philippian
 > Its adoption came about in a natural way. Just as senatus, γερουσία and πρεσβύτερος passed into official designations through the natural association of authority with age, so ἐπίσκοπος would be, almost inevitably, the designation of a superintendent. This process of natural selection was probably aided by the familiar use of the title in the clubs and guilds to designate functions analogous to those of the ecclesiastical administrator.
 > Vincent, M. R. (1887). Word studies in the New Testament (Vol. 4, p. 227). Charles Scribner’s Sons.
 
->Kelly points out that a close parallel to the office of overseer in the PE is seen in Qumran, where the overseer (me˒baqqēr) was responsible for “commanding, examining, instructing, receiving alms or accusations dealing with the peoples’ sins, and generally shepherding them”
+>Kelly points out that a close parallel to the office of overseer in the PE is seen in Qumran, where the overseer (me˒baqqēr) was responsible for "commanding, examining, instructing, receiving alms or accusations dealing with the peoples’ sins, and generally shepherding them"
 > Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 165). Word, Incorporated.
 -->
 

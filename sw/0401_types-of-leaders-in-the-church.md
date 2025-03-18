@@ -19,7 +19,7 @@ Neno lililotumika mara nyingi na Paulo kuelezea mtu maalum ni "mfanyakazi mwenza
 
 ## Mitume
 
-There are two meanings of apostle: Kichwa kinakuja kutoka neno lenye maana kigiriki "aliyetumwa." Kuna maana mbili za mtume:
+There are two meanings of apostle: Kichwa kinakuja kutoka neno lenye maana Kigiriki "aliyetumwa." Kuna maana mbili za mtume:
 
 1. Mjumbe
 2. Shahidi wa Yesu aliyeteswa
@@ -72,7 +72,7 @@ Mchungaji wa Hermasi, ambayo ilikuwa hati iliyotumiwa na kanisa la kwanza, inael
 
 Maana ya neno la Kigiriki ni "kutangaza habari."
 
-Philipo alikuwa mwinjilisti (Mdo. 21:8).(Katika SUV inatafsiriwa kama "mhubiri wa injili.") Wainjilisti walikwenda maeneo mapya kuwabadilisha watu kuwa wakristo na kuanzisha makanisa mapya. Lakini pia walikuwa na vipengele vya huduma katika kanisa, kwasababu Paulo alimwambia Timotheo ambaye alikuwa kiongozi katika kanisa kufanya kazi ya uinjilisti (2 Tim. 4:5).
+Philipo alikuwa mwinjilisti (Mdo. 21:8).(Katika SUV inatafsiriwa kama "mhubiri wa injili.") Wainjilisti walikwenda maeneo mapya kuwabadilisha watu kuwa Wakristo na kuanzisha makanisa mapya. Lakini pia walikuwa na vipengele vya huduma katika kanisa, kwasababu Paulo alimwambia Timotheo ambaye alikuwa kiongozi katika kanisa kufanya kazi ya uinjilisti (2 Tim. 4:5).
 
 ## Mchungaji
 
@@ -95,7 +95,7 @@ Didache anatuambia namna ya kumjua mwalimu mzuri:
 
 ## Mwangalizi/Askofu
 
-Neno la kigiriki ni _episkopē_, ikimaanisha "mwangalizi." Kwa kweli, _Neno Biblia Takatifu_ linatafsiri hii kama "mwangalizi." Cheo _mwangalizi_ "katika matumizi yake halisi, angalau mpaka muda wa Inyasi, ...lilikatazwa kwa wale waliokuwa waangalizi wa makanisa ya nyumbani. ...Ofisi ilijulikana kama kawaida na ilijumuisha nafasi yeyote, ya kidunia au kanisa ambalo 'uangalizi' ulikuwa wa muhimu."<sup>[5]</sup>
+Neno la Kigiriki ni _episkopē_, ikimaanisha "mwangalizi." Kwa kweli, _Neno Biblia Takatifu_ linatafsiri hii kama "mwangalizi." Cheo _mwangalizi_ "katika matumizi yake halisi, angalau mpaka muda wa Inyasi, ...lilikatazwa kwa wale waliokuwa waangalizi wa makanisa ya nyumbani. ...Ofisi ilijulikana kama kawaida na ilijumuisha nafasi yeyote, ya kidunia au kanisa ambalo 'uangalizi' ulikuwa wa muhimu."<sup>[5]</sup>
 
 Baadhi ya watu wanafikiri kwamba waangalizi na mashemasi walikuwa kitu kimoja, lakini Wafilipi 1:1 inawaonyesha kama nafasi mbili tofauti. 1 Timotheo 3:1-7 inatoa orodha ya sifa za mwangalizi. Didache pia inatoa orodha ya sifa:
 

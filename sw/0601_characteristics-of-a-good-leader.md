@@ -114,7 +114,7 @@ Kuoa kunaweza kusaidia viongozi, kwasababu wanaweza kujifunza kuwa viongozi kati
 
 ### Maana rahisi ya 2: Kiongozi hatakiwi kuwa na zaidi ya mke mmoja kwa mara moja
 
-Hichi sicho hasa alichokimaanisha Paulo, kwa kuwa sio wayahudi wengi au wakristo walijihusisha na ndoa za mitara.<sup>[8]</sup>
+Hichi sicho hasa alichokimaanisha Paulo, kwa kuwa sio wayahudi wengi au Wakristo walijihusisha na ndoa za mitara.<sup>[8]</sup>
 
 ### Maana rahisi ya 3: Kiongozi lazima awe mwaminifu kwa mke wake
 
@@ -128,7 +128,7 @@ Katika karne ya pili, kanisa liliamini kwa upana kuwa kiongozi hatakiwi kuoa mar
 
 #### Hitimisho la hali ya ndoa
 
-Kwasababu ya ugumu wa lugha ya kigiriki, ni ngumu kujua hasa ni nafasi zipi kati ya hizi Paulo alilenga. Bila shaka, nyaraka zinaongelea uaminifu katika ndoa. Hii ni, ndoa ya mke mmoja na inakubalika katika macho ya jamii.<sup>[11]<sup>
+Kwasababu ya ugumu wa lugha ya Kigiriki, ni ngumu kujua hasa ni nafasi zipi kati ya hizi Paulo alilenga. Bila shaka, nyaraka zinaongelea uaminifu katika ndoa. Hii ni, ndoa ya mke mmoja na inakubalika katika macho ya jamii.<sup>[11]<sup>
 
 Paulo aliichanganya hii katika orodha yake kuonyesha kuwa ilikuwa nzuri (japo siyo lazima) kwa viongozi katika kanisa kuoa au kuolewa. Hii ni muhimu, kwasababu walimu wa uongo katika waefeso waliwazuia watu wasioe (1 Tim. 4:3).
 
@@ -197,7 +197,7 @@ Na kwa 1 Timotheo, kulikuwa na wanawake katika kanisa kule Efeso ambao waligeuka
 
 Ni rahisi kuwa wanawake katika haya makanisa walikuwa hawajasoma kwasababu hawakuruhusiwa kwenda shule au hata kwenye sinagogi. Kwasababu hawakuwa wameelewa kila kitu, walikuwa wanawauliza waume zao maswali na kuleta usumbufu katika kanisa.
 
-1 Wakorintho 14:34 inasema kwamba sheria inasema kwamba wanawake " hawaruhusiwi kuongea, lakini wawe katika kujitoa." Hakuna sheria katika Agano la Kale inayosema kitu kama hicho. Inawezekana kuwa "sheria" haikuwa ya kiyahudi lakini ya Kirumi. Kama ndivyo ilivyo, inatakiwa itafsiriwe "mume" na "mke" badala ya "mwanaume" na "mwanamke". Kulikuwa na sheria za Kirumi ambazo hazikuruhusu mke kumsahihisha mume wake katika halaiki.
+1 Wakorintho 14:34 inasema kwamba sheria inasema kwamba wanawake " hawaruhusiwi kuongea, lakini wawe katika kujitoa." Hakuna sheria katika Agano la Kale inayosema kitu kama hicho. Inawezekana kuwa "sheria" haikuwa ya Kiyahudi lakini ya Kirumi. Kama ndivyo ilivyo, inatakiwa itafsiriwe "mume" na "mke" badala ya "mwanaume" na "mwanamke". Kulikuwa na sheria za Kirumi ambazo hazikuruhusu mke kumsahihisha mume wake katika halaiki.
 
 #### Paulo alikuwa anaongelea wazo lake mwenyewe na siyo wazo lililotoka kwa Mungu moja kwa moja
 

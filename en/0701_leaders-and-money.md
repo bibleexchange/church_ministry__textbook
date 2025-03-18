@@ -157,7 +157,7 @@ If you want to know more about the collection for the poor in Judea, read 1 Cori
 This is the only specific time in the New Testament where we see the church asking for money, and it was not for themselves, but for other people who were poor.
 
 <!--
-> “blessing,” and “divine service.”16 All of this together suggests that the “collection” was not some mere matter of money, but was for Paul an active response to the grace of God that not only ministered to the needs of God’s people but also became a kind of ministry to God himself, which resulted in thanksgiving toward God and in a bond of fellowship between “God’s people” across the Empire.
+> "blessing," and "divine service."16 All of this together suggests that the "collection" was not some mere matter of money, but was for Paul an active response to the grace of God that not only ministered to the needs of God’s people but also became a kind of ministry to God himself, which resulted in thanksgiving toward God and in a bond of fellowship between "God’s people" across the Empire.
 > Fee, G. D. (1987). The First Epistle to the Corinthians (p. 812). Wm. B. Eerdmans Publishing Co.-->
 
 ### Not only do we give in a collection in the church, but we give to the poor when they ask
@@ -205,7 +205,7 @@ Jesus received help to do His ministry (Luke 8:1-3). Jesus told the twelve (Matt
 
 The early church fathers believed that it was good to help the prophets, as they say in Didache 13:1-7:
 
-> But every true prophet who wishes to settle among you is “worthy of his food.” Likewise a true teacher is himself worthy, like the workman, of his food. Therefore thou shalt take the firstfruit of the produce of the winepress and of the threshing-floor and of oxen and sheep, and shalt give them as the firstfruits to the prophets, for they are your high priests. But if you have not a prophet, give to the poor. If thou makest bread, take the firstfruits, and give it according to the commandment. Likewise when thou openest a jar of wine or oil, give the firstfruits to the prophets. Of money also and clothes, and of all your possessions, take the firstfruits, as it seem best to you, and give according to the commandment.<sup>[1]</sup>
+> But every true prophet who wishes to settle among you is "worthy of his food." Likewise a true teacher is himself worthy, like the workman, of his food. Therefore thou shalt take the firstfruit of the produce of the winepress and of the threshing-floor and of oxen and sheep, and shalt give them as the firstfruits to the prophets, for they are your high priests. But if you have not a prophet, give to the poor. If thou makest bread, take the firstfruits, and give it according to the commandment. Likewise when thou openest a jar of wine or oil, give the firstfruits to the prophets. Of money also and clothes, and of all your possessions, take the firstfruits, as it seem best to you, and give according to the commandment.<sup>[1]</sup>
 
 ### Paul chose not to use this right
 
@@ -225,7 +225,7 @@ Paul could have taken money for himself, but instead he worked. Paul was a tent 
 
 Didache 12:1-5 says something similar to the teaching of Paul:
 
-> Let everyone who “comes in the Name of the Lord” be received; but when you have tested him you shall know him, for you shall have understanding of true and false. If he who comes is a traveller, help him as much as you can, but he shall not remain with you more than two days, or, if need be, three. And if he wishes to settle among you and has a craft, let him work for his bread. But if he has no craft provide for him according to your understanding, so that no man shall live among you in idleness because he is a Christian. But if he will not do so, he is making traffic of Christ; beware of such.<sup>[2]</sup>
+> Let everyone who "comes in the Name of the Lord" be received; but when you have tested him you shall know him, for you shall have understanding of true and false. If he who comes is a traveller, help him as much as you can, but he shall not remain with you more than two days, or, if need be, three. And if he wishes to settle among you and has a craft, let him work for his bread. But if he has no craft provide for him according to your understanding, so that no man shall live among you in idleness because he is a Christian. But if he will not do so, he is making traffic of Christ; beware of such.<sup>[2]</sup>
 
 <!--
 > For Paul’s manual labour, cf. 1 Cor. 4:12; 9:6; 1 Thess. 2:9; 2 Thess. 3:8; for his Christian ministry, cf. 1 Cor. 9:1; 15:10; Gal. 4:11; Phil. 1:22; 2:16; Col. 1:29; 1 Tim. 4:10; for the manual labour of others, cf. 1 Thess. 4:11; 2 Thess. 3:10–12; and, for the Christian ministry of others, cf. Rom. 16:6, 12; 1 Cor. 15:58; 16:10, 16; 2 Cor. 11:13, 15; Gal. 6:1; Eph. 4:12; Col. 3:23; 4:13 1 Thess. 1:3; 5:12–13; 1 Tim. 3:1; 5:10, 17–18; 2 Tim. 2:15, 21.

@@ -39,7 +39,7 @@ In a local Presbyterian church, there is not one pastor that makes all the decis
 Presbyterian churches differ from Congregational churches because they believe that it is not enough for each local church to operate on its own, but that there needs to be a universal, visible church (Eph. 4:4-5; John 17:20-23). They believe that this can only happen if there are groups of elders that unite the local churches together.<sup>[3]</sup>
 
 - **Source of authority:** Councils of elders.
-- **Key Scriptures used:** Hebrews 13:17, 1 Thessalonians 5:12–13
+- **Key Scriptures used:** Hebrews 13:17; 1 Thessalonians 5:12–13
 
 ### Congregational structure
 
@@ -80,35 +80,25 @@ We see that these structures differ in how the authority is distributed in the c
 
 ### Tanzania Assemblies of God (TAG)
 
-> Makanisa ya mahali pamoja ni yale ambayo ni vikundi au kundi la waamini ambao wanakubaliana na imani na mafundisho ya TAG, ambao wanakutana mara kwa mara kwa ajili ya kuabudu kwenye eneo maalum walilokubaliana na chini ya uongozi wa mmoja wa watumishi anayetambuliwa na Kamati ya Sehemu, Jimbo au Kamati Kuu ya Utendaji. Makanisa haya yatakuwa na viwango au masharti kwa ajili ya ushirika ambayo yatawekwa na Baraza Kuu la TAG nayo yatagawanyika katika madaraja mawili: Makanisa machanga na makanisa yaliyokomaa.
-> Local churches are those that are groups or groups of believers who agree with the beliefs and teachings of TAG, who meet regularly to worship at a specific location they agreed upon and under the leadership of one of the ministers recognized by the Regional Committee, State or the Executive Committee. These churches will have standards or conditions for membership that will be set by the General Council of TAG and will be divided into two categories: young churches and mature churches.
-> https://www.tag.or.tz/site/local_church
+> Local churches are those that are groups or groups of believers who agree with the beliefs and teachings of TAG, who meet regularly to worship at a specific location they agreed upon and under the leadership of one of the ministers recognized by the Regional Committee, State or the Executive Committee. These churches will have standards or conditions for membership that will be set by the General Council of TAG and will be divided into two categories: young churches and mature churches.<sup>[6]</sup>
 
 ### Free Pentecostal Church of Tanzania (FPCT)
 
-> TUNAAMINI... Kwamba kila kanisa la mahali chini ya FPCT lina uhuru wa kujiongoza, chini ya Baraza halali la wazee lililoundwa kwa msingi wa Biblia. (Mdo. 20:28; 1 Pet. 5:1-3)
-> We believe... That each local church under the FPCT has the freedom to govern itself, under a legitimate Council of Elders formed on the basis of the Bible. (Acts 20:28; 1 Pet. 5:1-3)
-> https://fpct.or.tz/page/tunachokiamini
+> We believe... That each local church under the FPCT has the freedom to govern itself, under a legitimate Council of Elders formed on the basis of the Bible. (Acts 20:28; 1 Pet. 5:1-3)<sup>[7]</sup>
 
 ### The Anglican Church of Tanzania (ACT)
 
 > The Diocesan General Council is the continuing working arm of the Synod. Its members have been selected by their parishes and voted upon at the Synod. The responsibilities of the General Council include supervising the various Boards and Communities of the diocese and deciding who will serve on them.<sup>[8]</sup>
 
-### Kanisa la Moravian Tanzania
+### The Moravian Church of Tanzania
 
-> Katika ngazi ya jimbo, muundo wa kanisa umegawanyika katika Kamati tendaji (EXCO) yenye Mwenyekiti, Makamu Mwenyekiti, Katibu Mkuu, Askofu na idara kumi na nne (14). Kila moja wapo inaongozwa na karani. Pia, muundo huu upo katika ngazi ya wilaya, mkoa na usharika.
-> On the Provincial level, the Church’s structure is divided into an Executive Committee (EXCOM) made up of the Chairman, the Vice Chairman, the General Secretary, the bishop and fourteen departments. Each of them is led by a secretary. This structure is also present at the district, the regional and the congregational level.
-> https://mctswp.voog.com/who-we-are/headoffice
+> On the Provincial level, the Church’s structure is divided into an Executive Committee (EXCOM) made up of the Chairman, the Vice Chairman, the General Secretary, the bishop and fourteen departments. Each of them is led by a secretary. This structure is also present at the district, the regional and the congregational level.<sup>[9]</sup>
 
-> Askofu wa Kanisa la Moravian amewekwa wakfu kwa huduma maalum ya uchungaji kwa jina la na kwa Umoja mzima. Ofisi ya Askofu inawakilisha umuhimu wa umoja wa Kanisa na uendelezaji wa huduma ya Kanisa, ingawa Umoja hausisitizi juu ya utangazaji wowote wa urithi wa kitume. Ofisi na kazi ya Askofu ni halali katika Umoja kwa ujumla.
-> Wajibu wa Askofu wa Kanisa la Moravian ni, kati ya wengine:
+> A Bishop of the Moravian Church is consecrated to a special priestly pastoral ministry in the name of and for the whole Unity. The office of Bishop represents the vital unity of the Church and the continuity of the Church's ministry, although the Unity does not place emphasis on any mechanical transmission of the apostolic succession. The office and function of a Bishop is valid throughout the Unity as a whole.  
+> Duties of a Bishop of the Moravian Church are, among others, the following:
 >
-> 1. Askofu ana wajibu maalum wa maombezi kwa umoja, na pia kwa Kanisa la Kristo kwa ujumla.
-> 2. Maaskofu tu wana haki ya kuandaa au kutekeleza maagizo mbalimbali ya huduma, lakini wakiwa wametumwa kufanya hivyo na bodi ya kanisa au Sinodi.
->    A Bishop of the Moravian Church is consecrated to a special priestly pastoral ministry in the name of and for the whole Unity. The office of Bishop represents the vital unity of the Church and the continuity of the Church's ministry, although the Unity does not place emphasis on any mechanical transmission of the apostolic succession. The office and function of a Bishop is valid throughout the Unity as a whole.
->    Duties of a Bishop of the Moravian Church are, among others, the following:
-> 3. A Bishop has a special duty of intercession for the Unity, and also for the Church of Christ as a whole.
-> 4. Only Bishops have the right to ordain or to consecrate to the various orders of the ministry, but only when commissioned to do so by a Provincial Board or Synod.
+> 1. A Bishop has a special duty of intercession for the Unity, and also for the Church of Christ as a whole.
+> 2. Only Bishops have the right to ordain or to consecrate to the various orders of the ministry, but only when commissioned to do so by a Provincial Board or Synod.
 
 ---
 
@@ -117,6 +107,7 @@ We see that these structures differ in how the authority is distributed in the c
 - [3] https://www.thegospelcoalition.org/article/why-you-should-be-a-presbyterian/
 - [4] https://www.sbc.net/about/what-we-do/sbc-governance/
 - [5] https://www.thegospelcoalition.org/article/hey-christians-polity-matters/
-- [6]
-- [7]
+- [6] https://www.tag.or.tz/site/local_church
+- [7] > https://fpct.or.tz/page/tunachokiamini
 - [8] http://www.d-c-t.org/Governance.html
+- [9] https://mctswp.voog.com/who-we-are/headoffice

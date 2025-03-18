@@ -62,8 +62,8 @@ Kuhudumia mahitaji ya kimwili ya watu ni dhana iliyopingwa na huduma ya Kikristo
 
 1. Yesu Siyo tu kwamba aliwafundisha watu, bali aliwapa chakula cha kimwili pia (Mt. 15:29-32)
 2. Yesu ataadhibu wote wanaodharau maskini (Mt. 25:31-46)
-3. Wazee na Maaskofu walipaswa “kuwa na ukarimu” (1 Tim. 3:2; Tit. 1:8)
-4. “Dini ya kweli” ni inayosaidia wajane na yatima (Yak. 1:27)
+3. Wazee na Maaskofu walipaswa "kuwa na ukarimu" (1 Tim. 3:2; Tit. 1:8)
+4. "Dini ya kweli" ni inayosaidia wajane na yatima (Yak. 1:27)
 5. Hatupaswi tu kuomba kwa mtu mwenye uhitaji, bali tunatakiwa kuwasaidia (Yak. 2:15-17)
 6. Kanisa la mwanzo walishiriki pamoja vyote walivyokuwa navyo, hivyo hakukuwa na mhitaji (Mdo. 4:32-35)
 7. Hatutakuwa na upendo wa Mungu kama tutawapuuza maskini (1 Yoh. 3:17-18)

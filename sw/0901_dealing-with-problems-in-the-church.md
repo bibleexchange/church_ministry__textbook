@@ -8,7 +8,7 @@ Ni mara nyingi sana katika kitabu cha Matendo ambao mitume na wazee walikutana p
 2. Matendo 15:1-35: Walijadili kama wokovu wa mataifa ni mpaka watahiriwe na kufuata sheria ya Musa.
 3. Matendo 21:17-26: Walijadili huduma ya Paulo kwa mataifa
 
-Tunaona kutoka katika baraza hizi, kwamba wakati kulipokuwa na swali kuhusu fundisho katika kanisa, viongozi walikutana pamoja kukubaliana kuhusu jibu sahihi. Hii iliendelea katika historia ya kanisa na mabaraza kama baraza la Nikea (325 KK), Efeso (431 KK)na Kalkedoni (451 KK). Muda ulipoendelea na kukawepo na matabaka mengi ndani ya kanisa, mabaraza haya mazima yalikoma, lakini kumekuwa na jitihada za kuunganisha wakristo kupitia mashirika, kama vile baraza la dunia la makanisa.
+Tunaona kutoka katika baraza hizi, kwamba wakati kulipokuwa na swali kuhusu fundisho katika kanisa, viongozi walikutana pamoja kukubaliana kuhusu jibu sahihi. Hii iliendelea katika historia ya kanisa na mabaraza kama baraza la Nikea (325 KK), Efeso (431 KK)na Kalkedoni (451 KK). Muda ulipoendelea na kukawepo na matabaka mengi ndani ya kanisa, mabaraza haya mazima yalikoma, lakini kumekuwa na jitihada za kuunganisha Wakristo kupitia mashirika, kama vile baraza la dunia la makanisa.
 
 ## Tunahitaji unyenyekevu tunapojaribu kutatua matatizo
 
@@ -37,13 +37,13 @@ Ikiwezekana, kukiwa na matatizo kati ya watu wawili katika kanisa, tatizo hilo n
 
 ## Tunatakiwa kujua vitu gani ni muhimu sana kuvigawanya
 
-Tunaona kuwa muda tunatakiwa kujitenga na wakristo wengine, lakini tunajuaje hasa wakati wa kujitenga?
+Tunaona kuwa muda tunatakiwa kujitenga na Wakristo wengine, lakini tunajuaje hasa wakati wa kujitenga?
 
-Paulo anafundisha katika Warumi mlango wa 14 kuhusu namna ya kushughulikia tofauti za kiimani kati ya Wakristo. Baadhi ya wakristo hawakutaka kula nyama ambazo zilitolewa kwa sanamu, pia kulikuwa na midahalo kuhusu siku takatifu. Baadhi ya wakristo walitaka kushika siku takatifu, lakini wengine walihisi siku zote ni sawa. Paulo aliwaambia wasiwahukumu wengine kwa vitu hivi (Rum. 14:10-13). Watu wote walitenda walichokitenda kwaajili ya utukufu wa Mungu (Rum. 14:6).
+Paulo anafundisha katika Warumi mlango wa 14 kuhusu namna ya kushughulikia tofauti za kiimani kati ya Wakristo. Baadhi ya Wakristo hawakutaka kula nyama ambazo zilitolewa kwa sanamu, pia kulikuwa na midahalo kuhusu siku takatifu. Baadhi ya Wakristo walitaka kushika siku takatifu, lakini wengine walihisi siku zote ni sawa. Paulo aliwaambia wasiwahukumu wengine kwa vitu hivi (Rum. 14:10-13). Watu wote walitenda walichokitenda kwaajili ya utukufu wa Mungu (Rum. 14:6).
 
-Paulo pia anasema tunatakiwa tuwe makini kutokuwakosoa wakristo wengine wanaoamini tofauti na vile tunavyoamini. Kama mtu haamini katika kula nyama zilizotolewa kwa sanamu, basi tusile nyama wakiwa karibu (Rum. 14:20-21. Angalia pia 1 Kor. 8:1-13 na 10:23-33).
+Paulo pia anasema tunatakiwa tuwe makini kutokuwakosoa Wakristo wengine wanaoamini tofauti na vile tunavyoamini. Kama mtu haamini katika kula nyama zilizotolewa kwa sanamu, basi tusile nyama wakiwa karibu (Rum. 14:20-21. Angalia pia 1 Kor. 8:1-13 na 10:23-33).
 
-Mfano mzuri wa kufanya vitu bila kuwakosoa wakristo wengine ni wakati Paulo alipomtahiri Timotheo katika Matendo 16:1-3. Paulo hakuamini kuwa tohara ilihitajika kwaajili ya wokovu (Gal. 5:6), lakini bado tu alimtahiri Timotheo ili kwamba wakristo wengine waweze kumsikiliza.
+Mfano mzuri wa kufanya vitu bila kuwakosoa Wakristo wengine ni wakati Paulo alipomtahiri Timotheo katika Matendo 16:1-3. Paulo hakuamini kuwa tohara ilihitajika kwaajili ya wokovu (Gal. 5:6), lakini bado tu alimtahiri Timotheo ili kwamba Wakristo wengine waweze kumsikiliza.
 
 Kuna baadhi ya vitu katika hili tunavyoweza kufanya kuiweka mioyo yetu sawa wakati wa kushungulikia tofauti:
 
@@ -55,7 +55,7 @@ Kuna baadhi ya vitu katika hili tunavyoweza kufanya kuiweka mioyo yetu sawa waka
 
 Kama tunavyoona katika historia ya kanisa, matabaka mengi katika kanisa si hasa kuhusu mafundisho, bali kuhusu nguvu. Watu hawakubaliani kuhusu nani awe kiongozi na hivyo wanagawanyika. Hii si sababu nzuri ya kugawanyika.
 
-Tunaona hii katika kanisa la kwanza. Baadhi ya wakristo walikuwa wanatengeneza makundi katikati ya mafundisho ya baadhi ya viongozi wa kanisa. Baadhi walimfuata Paulo, wengine kwa Apolo na wengine kwa Kefa. Paulo alionya mawazo haya kwa kuwakumbusha kwamba Yesu pekee ndiye anayestahili utii wetu, kwani Yesu pekee ndiye alikufa kwaajili yetu na tumebatizwa katika jina la Yesu na sio kwa jina la binadamu yeyote (1 Kor. 1:10-17).
+Tunaona hii katika kanisa la kwanza. Baadhi ya Wakristo walikuwa wanatengeneza makundi katikati ya mafundisho ya baadhi ya viongozi wa kanisa. Baadhi walimfuata Paulo, wengine kwa Apolo na wengine kwa Kefa. Paulo alionya mawazo haya kwa kuwakumbusha kwamba Yesu pekee ndiye anayestahili utii wetu, kwani Yesu pekee ndiye alikufa kwaajili yetu na tumebatizwa katika jina la Yesu na sio kwa jina la binadamu yeyote (1 Kor. 1:10-17).
 
 Viongozi hawa ni watumishi wa Mungu tu. Wote tunatenda mambo tofauti katika ufalme wa Mungu, lakini ni Mungu pekee ndiye anayeleta mabadiliko ya kweli ya kiroho (1 Kor. 3:3-11, 21-23).
 
