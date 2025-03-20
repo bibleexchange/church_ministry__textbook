@@ -73,7 +73,7 @@ Tukitoa kwa watu, tunatoa kama kwa Mungu na hatutarajii kurudishiwa chochote (Lk
 
 Kuna wahubiri wengi ambao wanapenda kusema ukitia pesa kwa Mungu. Mungu naye atakupa mara kumi ya pesa uliyoitoa. Luka 6:38 ni mstari mkuu ambao wanapenda kuutumia kuhubiri hii:
 
-> Luka 6:38—Wapeni watu vitu, nanyi mtapewa; kipimo cha kujaa na kushindiliwa, na kusukwa-sukwa hata kumwagika, ndicho watu watakachowapa vifuani mwenu. Kwa kuwa kipimo kile kile mpimacho ndicho mtakachopimiwa.
+> Luka 6:38 — Wapeni watu vitu, nanyi mtapewa; kipimo cha kujaa na kushindiliwa, na kusukwa-sukwa hata kumwagika, ndicho watu watakachowapa vifuani mwenu. Kwa kuwa kipimo kile kile mpimacho ndicho mtakachopimiwa.
 
 Tukisoma maandiko yaliyo karibu na hili, tunaona ni sehemu ya maongezi marefu kuhusu jinsi tunavyohusiana na majirani zetu na maadui (mstari wa 24–27). Yesu alisema tutoe bila kutegemea malipo (34–35). Kuna dhana ya hukumu kutoka kwa Mungu inayohusiana na vile tunavowatendea wengine. Kwasababu inasema"Mtarejeshewa" haimaanishi hasa ukarimu kwa ukarimu. Tukitoa, Mungu atatupatia vitu vizuri, japokuwa ni labda baraka za rohoni (1 Tim. 6:17–19; Efe. 1:3; Mdo. 20:35). Zaburi 41:1–3 pia inaonyesha jinsi Mungu atakavyowabariki wale wanaotoa kwaajili ya masikini kwa kuwalinda na kuwapa afya.
 

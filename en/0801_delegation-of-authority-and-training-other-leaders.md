@@ -4,7 +4,7 @@ Some leaders are afraid of sharing the authority with others. They want to have 
 
 We see in Exodus a story about Moses. Moses sat all day listening to the problems of the people and doing the work of a judge. He had a relative come to visit, and when the relative saw the work of Moses, he suggested that Moses share that work with others:
 
-> Exodus 18:21—Moreover thou shalt provide out of all the people able men, such as fear God, men of truth, hating covetousness; and place such over them, to be rulers of thousands, and rulers of hundreds, rulers of fifties, and rulers of tens:
+> Exodus 18:21 — Moreover thou shalt provide out of all the people able men, such as fear God, men of truth, hating covetousness; and place such over them, to be rulers of thousands, and rulers of hundreds, rulers of fifties, and rulers of tens:
 
 ## Make disciples of all nations
 

@@ -4,8 +4,7 @@ Leo tuna wazo la kiongozi mmoja kanisani, ambaye anawajibika na maamuzi yote kan
 
 Agano Jipya inatoa sifa za baadhi ya nafasi za uongozi, ila haielezi hizo nafasi zilikuwaje na zilipaswa ziweje. Tunapaswa kuorodhesha aina za viongozi ambazo zina vyeo tofauti. 1 Timotheo 3:1–13 inataja waangalizi (maaskofu) na mashemasi, na Waefeso 4:11 inataja mitume, nabii, mwinjilist, mchungaji, na mwalimu. Katika 1 Wakorintho 12:28 tuna orodha inayoonyesha vyeo vitatu kutoka Waefeso 4:11 (mitume, manabii, na walimu). Tunaweza kusema orodha katika Waefeso ni watu waliochaguliwa na Mungu kwa ajili ya kanisa na orodha kwenye 1 Timotheo ni viongozi waliochaguliwa na wanadamu kanisani. Kunaweza kuwa na utofauti mkubwa kati ya orodha hizo mbili. Mtu anaweza kuwa mchungaji na waangalizi na mtu mwingine labda mchungaji na siyo waangalizi. Didache, ambayo ilikuwa ni nyaraka zilizotumika na kanisa la kwanza, imeweka wazi kwa kusema kuwa watu ambao ni maaskofu au mashemasi kufanya kazi ya manabii na walimu:
 
-> Didache 15:1  
-> Chagua, kwahiyo, kwa ninyiwenyewe waangalizi na mashemasi wanaostahili kwa Bwana, watu ambao ni wapole na asiwe na tamaa, mkweli na aliyedhibitika, kwa kuwa wanafanya huduma ya manabii na uwalimu.<sup>[1]</sup>
+> Didache 15:1 — Chagua, kwahiyo, kwa ninyiwenyewe waangalizi na mashemasi wanaostahili kwa Bwana, watu ambao ni wapole na asiwe na tamaa, mkweli na aliyedhibitika, kwa kuwa wanafanya huduma ya manabii na uwalimu.<sup>[1]</sup>
 
 Pia kuna nafasi "mzee" ambayo ni neno la ujumla kwa kiongozi yeyote ndani ya kanisa au ni nafasi inayoitwa kwa viongozi kanisani ambayo siyo mwangalizi au shemasi.
 
@@ -32,8 +31,7 @@ Yesu aliitwa mtume (Erb. 3:1), pengine ni kwakuwa alileta ujumbe wa injili ulimw
 
 Didache ya mitume hutoa miongozo jinsi ya kujua kama mtume ni kweli. Kama watauliza pesa au kuchukua faida ya ukarimu wako, sasa watakuwa siyo mitume wa kweli. Hii inaonyesha kwamba kwenye kanisa la mwanzo kulikuwa na watu wakitafuta faida zao wenyewe:
 
-> Didache 11:3–6  
-> Kuhusu Mitume na Manabii, wanafanya kulingana na agizo la injili. Kila mtume akija kwako apokelewe kama Bwana, ila asikae zaidi ya siku moja, au kama atakaa kwa siku ya pili tena; ila kama atakaa kwa siku tatu, atakuwa nabii wa uwongo. Na wakati mtume anaondoka asipokee chochote ila mkate mpaka afike mahali pa kupumzika; ila kama atauliza pesa, atakuwa nabii wa uwongo.
+> Didache 11:3–6 — Kuhusu Mitume na Manabii, wanafanya kulingana na agizo la injili. Kila mtume akija kwako apokelewe kama Bwana, ila asikae zaidi ya siku moja, au kama atakaa kwa siku ya pili tena; ila kama atakaa kwa siku tatu, atakuwa nabii wa uwongo. Na wakati mtume anaondoka asipokee chochote ila mkate mpaka afike mahali pa kupumzika; ila kama atauliza pesa, atakuwa nabii wa uwongo.
 
 ### Shahidi wa Kristo aliyeteswa
 
@@ -65,8 +63,7 @@ Nabii ni yule anayezungumza kama mjumbe wa Mungu moja kwa moja. Hawa ni baadhi y
 
 Mchungaji wa Hermasi, ambayo ilikuwa hati iliyotumiwa na kanisa la kwanza, inaeleza jinsi ya kujua kama nabii ni kweli au la:
 
-> Mchungaji wa Hermasi, Mandate 11:7–8  
-> "Kwa namna gani, halafu," nikasema mimi,"Bwana je mtu anaweza kumjua nabii wa kweli na nabii wa uongo?" "Sikiliza," akasema, "kuhusiana na manabii wote, na kama nitakavyokuambia, hivyo unaweza kumjua nabii wa kweli na wa uongo. Utamjua mtu mwenye roho ya Mungu kwa maisha yake. Kwa upande mmoja yeye aliye na roho itokayo juu ni mpole na muungwana, mnyenyekevu na hujilinda na maovu yote na matamanio ya uasi wa ulimwengu huu na hujifanya masikini kuliko watu wote, na hajibu chochote anapokabiliwa wala haongei peke yake (kwani Roho Mtakatifu mtu anapotamani kuongea), balikatika wakati ambao Mungu anatamani yeye azungumze."
+> Mchungaji wa Hermasi, Mandate 11:7–8 — "Kwa namna gani, halafu," nikasema mimi,"Bwana je mtu anaweza kumjua nabii wa kweli na nabii wa uongo?" "Sikiliza," akasema, "kuhusiana na manabii wote, na kama nitakavyokuambia, hivyo unaweza kumjua nabii wa kweli na wa uongo. Utamjua mtu mwenye roho ya Mungu kwa maisha yake. Kwa upande mmoja yeye aliye na roho itokayo juu ni mpole na muungwana, mnyenyekevu na hujilinda na maovu yote na matamanio ya uasi wa ulimwengu huu na hujifanya masikini kuliko watu wote, na hajibu chochote anapokabiliwa wala haongei peke yake (kwani Roho Mtakatifu mtu anapotamani kuongea), balikatika wakati ambao Mungu anatamani yeye azungumze."
 
 ## Wainjilisti
 
@@ -90,8 +87,7 @@ Sio kila mtu anatakiwa atamani kuwa mwalimu, kwasababu mwalimu atapata hukumu ku
 
 Didache anatuambia namna ya kumjua mwalimu mzuri:
 
-> Didache 11:1–2  
-> Yeyote anayekuja na kukufundisha vitu vyote hivi nilivyovitaja hapo awali, mpokee. Lakini kama mwalimu mwenyewe amepotoka na kufundisha mafundisho tofauti kuharibu hivi vitu, usimsikilize, bali kama mafundisho yake yatakuwa ya kuongeza haki na ufahamu wa Bwana, mpokee kama Bwana.
+> Didache 11:1–2 — Yeyote anayekuja na kukufundisha vitu vyote hivi nilivyovitaja hapo awali, mpokee. Lakini kama mwalimu mwenyewe amepotoka na kufundisha mafundisho tofauti kuharibu hivi vitu, usimsikilize, bali kama mafundisho yake yatakuwa ya kuongeza haki na ufahamu wa Bwana, mpokee kama Bwana.
 
 ## Mwangalizi/Askofu
 
@@ -99,8 +95,7 @@ Neno la Kigiriki ni _episkopē_, ikimaanisha "mwangalizi." Kwa kweli, _Neno Bibl
 
 Baadhi ya watu wanafikiri kwamba waangalizi na mashemasi walikuwa kitu kimoja, lakini Wafilipi 1:1 inawaonyesha kama nafasi mbili tofauti. 1 Timotheo 3:1–7 inatoa orodha ya sifa za mwangalizi. Didache pia inatoa orodha ya sifa:
 
-> Didache 15:1–4  
-> Chagueni ninyi wenyewe waangalizi na mashemasi wanaomstahili Bwana, watu wapole na sio wenye kupenda fedha, wakweli na walioathibitishwa, kwani wanawatumikia nimyi pia huduma ya manabii na walimu. Hivyo msiwadharau kwa kuwa ni watu wenu wa heshima pamoja na manabii na walimu. Na muonyane ninyi kwa ninyi kwa Amani na sio kwa hasira kama injili zisemavyo, na yeyote yule asiongee na yeyote aliyemkosea jirani yake wala kumruhusu asikie neno kutoka kwako mpaka atakapotubu. Lakni maombi yako na msaada na matendo yako yote ufanye kama injili ya Bwana wetu inavyosema.
+> Didache 15:1–4 — Chagueni ninyi wenyewe waangalizi na mashemasi wanaomstahili Bwana, watu wapole na sio wenye kupenda fedha, wakweli na walioathibitishwa, kwani wanawatumikia nimyi pia huduma ya manabii na walimu. Hivyo msiwadharau kwa kuwa ni watu wenu wa heshima pamoja na manabii na walimu. Na muonyane ninyi kwa ninyi kwa Amani na sio kwa hasira kama injili zisemavyo, na yeyote yule asiongee na yeyote aliyemkosea jirani yake wala kumruhusu asikie neno kutoka kwako mpaka atakapotubu. Lakni maombi yako na msaada na matendo yako yote ufanye kama injili ya Bwana wetu inavyosema.
 
 ### Mafundisho ya Inyasi juu ya uongozi wa kanisa mfumo wa uongozi wa Inyasi
 
@@ -110,8 +105,7 @@ Katika Agano Jipya, Wafilipi 1:1 ni mstari unaotuonyesha kwamba mfumo wa Inyasi 
 
 Japokuwa wazo la askofu kuwa na nguvu kuliko watu wengine katika kanisa haitoki moja kwa moja katika Agano Jipya, katika karne ya pili, ilikuwa kawaida katika kanisa. Kwasababu kulikuwa na askofu mmoja tu katika mji, watu waligombania nafasi ya askofu. Klementi, amabye alikuwa baba wa kanisa la kwanza, alijua kuwa watu wengi wangegombania kuwa askofu. Hii inaonyesha kuwa kwa wakati fulani, nafasi ilikuwa maarufu sana katika kanisa:
 
-> 1 Klementi 44:1  
-> Mitume wetu pia walijua kupitia Bwana wetu Yesu Kristo kwamba kungekuwa na mgongano kwa nafasi ya uaskofu.
+> 1 Klementi 44:1 — Mitume wetu pia walijua kupitia Bwana wetu Yesu Kristo kwamba kungekuwa na mgongano kwa nafasi ya uaskofu.
 
 ## Mashemasi/Watumishi
 

@@ -73,7 +73,7 @@ When we give to people, we give it as to God and we do not expect anything in re
 
 There are many preachers that like to say that if you give money to God, then He will give you ten times that money back. Luke 6:38 is a major verse that they use to preach this:
 
-> Luke 6:38—Give, and it shall be given unto you; good measure, pressed down, and shaken together, and running over, shall men give into your bosom. For with the same measure that ye mete withal it shall be measured to you again.
+> Luke 6:38 — Give, and it shall be given unto you; good measure, pressed down, and shaken together, and running over, shall men give into your bosom. For with the same measure that ye mete withal it shall be measured to you again.
 
 If we read the verses around this, we see it is part of a larger conversation about how we interact with our neighbors and enemies (v. 24–37). Jesus said to give without expect of return (34–35). There is an aspect of judgment from God based on how we treat others. Because it says "it shall be given to you" does not necessarily mean kind for kind. When we give, God will give good things to us, though it is likely spiritual blessings (1 Tim. 6:17–19; Eph. 1:3; Acts 20:35). Psalm 41:1–3 also shows how God will bless those that give to the poor with protection and health.
 
@@ -215,7 +215,7 @@ Paul recognized that it was his right to receive for doing the work of the Gospe
 
 Why did Paul choose to not take money? He did not want to hinder the Gospel (1 Cor. 9:12). He thought that if he took money, then in the mind of some people, they would think he was only doing the ministry for the money. This would make the Gospel void (1 Corinthians 9:15).
 
-> 1 Corinthians 9:18—What is my reward then? Verily that, when I preach the gospel, I may make the gospel of Christ without charge, that I abuse not my power in the gospel.
+> 1 Corinthians 9:18 — What is my reward then? Verily that, when I preach the gospel, I may make the gospel of Christ without charge, that I abuse not my power in the gospel.
 
 He also knew that some of the churches that he visited were poor, and he did not want to be a burden to them (2 Cor. 11:8–9; 1 Thess. 2:9–10).
 

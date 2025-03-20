@@ -4,7 +4,7 @@ Baadhi ya viongozi wanaogopa kushirikisha mamlaka kwa wengine. Wanataka kuwa na 
 
 Tunaona katika Kutoka hadithi kuhusu Musa. Musa alitumia siku nzima kusikiliza matatizo ya watu na kufanya kazi kama hakimu. Alikuwa na ndugu aliyekuja kumtembelea na yule ndugu alipoona kazi ya Musa, alimshauri Musa ashirikishe kazi hiyo kwa wengine:
 
-> Kutoka 18:21—Zaidi ya hayo utajipatia katika watu hawa watu walio na uwezo, wenye kumcha Mungu, watu wa kweli, wenye kuchukia mapato ya udhalimu; ukawaweka juu yao, wawe wakuu wa maelfu, na wakuu wa mia, na wakuu wa hamsini, na wakuu wa kumi;
+> Kutoka 18:21 — Zaidi ya hayo utajipatia katika watu hawa watu walio na uwezo, wenye kumcha Mungu, watu wa kweli, wenye kuchukia mapato ya udhalimu; ukawaweka juu yao, wawe wakuu wa maelfu, na wakuu wa mia, na wakuu wa hamsini, na wakuu wa kumi;
 
 ## Wafanye mataifa kuwa wanafunzi
 

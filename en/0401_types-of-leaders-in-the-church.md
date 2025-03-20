@@ -4,8 +4,7 @@ Today we have the idea of one leader in the church, the pastor, who is responsib
 
 The New Testament gives qualifications for some positions of leadership, but it does not describe what those positions were and what they were supposed to do. We have two lists of types of leaders that have different titles in them. 1 Timothy 3:1–13 lists overseers and deacons, and Ephesians 4:11 lists apostle, prophet, evangelist, pastor, and teacher. In 1 Corinthians 12:28 we have a list that shares three of the titles from Ephesians 4:11 (apostles, prophets, and teachers). We can say that the list in Ephesians are people appointed by God for the good of the church and the list in 1 Timothy are leaders appointed by humans in the church. There can be overlap between these two lists. Someone can be both a pastor and an overseer and another person may be a pastor but not an overseer. The Didache, which was an early document used by the church, makes this clear by saying that people who are overseers or deacons do the ministry of prophets and teachers:
 
-> Didache 15:1  
-> Elect, therefore, for yourselves overseers and deacons worthy of the Lord, men who are meek and not covetous, and true and approved, for they perform for you the service of prophets and teachers.<sup>[1]</sup>
+> Didache 15:1 — Elect, therefore, for yourselves overseers and deacons worthy of the Lord, men who are meek and not covetous, and true and approved, for they perform for you the service of prophets and teachers.<sup>[1]</sup>
 
 There is also the title "elder," which is possibly a general term for any leader in the church or it is a title used for leaders in the church that are neither overseer or deacon.
 
@@ -54,8 +53,7 @@ Jesus was called an apostle (Heb. 3:1), probably in the sense that He brought th
 
 The Didache gives instructions on how to know if an apostle is true. If they ask for money or take advantage of your hospitality, then they are not a real apostle. This shows that in the early church there were people using this title to try to find personal gain:
 
-> Didache 11:3–6  
-> And concerning the Apostles and Prophets, act thus according to the ordinance of the Gospel. Let every Apostle who comes to you be received as the Lord, but let him not stay more than one day, or if need be a second as well; but if he stay three days, he is a false prophet. And when an Apostle goes forth let him accept nothing but bread till he reach his night’s lodging; but if he ask for money, he is a false prophet.
+> Didache 11:3–6 — And concerning the Apostles and Prophets, act thus according to the ordinance of the Gospel. Let every Apostle who comes to you be received as the Lord, but let him not stay more than one day, or if need be a second as well; but if he stay three days, he is a false prophet. And when an Apostle goes forth let him accept nothing but bread till he reach his night’s lodging; but if he ask for money, he is a false prophet.
 
 ### Witness of the resurrected Christ
 
@@ -87,8 +85,7 @@ A prophet is one who speaks as a direct messenger for God. Here are some prophet
 
 The Shepherd of Hermas, which was a document used by the early church, tells how to know if a prophet is real or not:
 
-> Shepherd of Hermas, Mandate 11:7–8  
-> "How, then," said I, "sir, shall a man know which of them is a true prophet and which a false prophet?" "Listen," said he, "concerning both the prophets, and as I shall tell you, so you shall judge the true prophet and the false prophet. Test the man who has the Divine Spirit by his life. In the first place, he who has the spirit which is from above, is meek and gentle, and lowly-minded, and refrains from all wickedness and evil desire of this world, and make himself poorer than all men, and gives no answers to anyone when he is consulted, nor does he speak by himself (for the Holy Spirit does not speak when a man wishes to speak), but he speaks at that time when God wishes him to speak."
+> Shepherd of Hermas, Mandate 11:7–8 — "How, then," said I, "sir, shall a man know which of them is a true prophet and which a false prophet?" "Listen," said he, "concerning both the prophets, and as I shall tell you, so you shall judge the true prophet and the false prophet. Test the man who has the Divine Spirit by his life. In the first place, he who has the spirit which is from above, is meek and gentle, and lowly-minded, and refrains from all wickedness and evil desire of this world, and make himself poorer than all men, and gives no answers to anyone when he is consulted, nor does he speak by himself (for the Holy Spirit does not speak when a man wishes to speak), but he speaks at that time when God wishes him to speak."
 
 ## Evangelist
 
@@ -116,8 +113,7 @@ Not everyone should desire to be a teacher, because a teacher will be judged mor
 
 The Didache tells how to know a good teacher:
 
-> Didache 11:1–2  
-> Whosoever then comes and teaches you all these things aforesaid, receive him. But if the teachers himself be perverted and teach another doctrine to destroy these things, do not listen to him, but if his teaching be for the increase of righteousness and knowledge of the Lord, receive him as the Lord.
+> Didache 11:1–2 — Whosoever then comes and teaches you all these things aforesaid, receive him. But if the teachers himself be perverted and teach another doctrine to destroy these things, do not listen to him, but if his teaching be for the increase of righteousness and knowledge of the Lord, receive him as the Lord.
 
 ## Overseer/Bishop
 
@@ -125,8 +121,7 @@ The Greek word is _episkopē_, which means "overseer." In fact, the _Neno Biblia
 
 Some people think that overseers and deacons were the same thing, but Philippians 1:1 show them as two separate positions. 1 Timothy 3:1–7 gives a list of qualifications for the overseer. The Didache also gives a list of qualifications:
 
-> Didache 15:1–4  
-> Appoint therefore for yourselves overseers and deacons worthy of the Lord, meek men, and not lovers of money, and truthful and approved, for they also minister to you the ministry of the prophets and teachers. Therefore do not despise them, for they are your honorable men together with the prophets and teachers. And reprove one another not in wrath but in peace as you find in the Gospel, and let none speak with any who has done a wrong to his neighbor, nor let him hear a word from you until he repents. But your prayers and alms and all your acts perform as ye find in the Gospel of our Lord.
+> Didache 15:1–4 — Appoint therefore for yourselves overseers and deacons worthy of the Lord, meek men, and not lovers of money, and truthful and approved, for they also minister to you the ministry of the prophets and teachers. Therefore do not despise them, for they are your honorable men together with the prophets and teachers. And reprove one another not in wrath but in peace as you find in the Gospel, and let none speak with any who has done a wrong to his neighbor, nor let him hear a word from you until he repents. But your prayers and alms and all your acts perform as ye find in the Gospel of our Lord.
 
 <!--Acts 20:28 (KJV 1900)
 28Take heed therefore unto yourselves, and to all the flock, over the which the Holy Ghost hath made you overseers, to feed the church of God, which he hath purchased with his own blood.
@@ -154,8 +149,7 @@ In the New Testament, Philippians 1:1 is the verse that shows us that the system
 
 Even if the idea of the bishop being more powerful than other people in the church does not come directly from the New Testament, by the second century, it was common in the church. Because there was only one bishop in a city, people fought for the position of bishop. Clement, who was an early church father, knew that many people would fight to be bishop. This shows that at some time, the position became to be a more prominent position in the church:
 
-> I Clement 44:1  
-> Our Apostles also knew through our Lord Jesus Christ that there would be strife for the title of bishop.
+> I Clement 44:1 — Our Apostles also knew through our Lord Jesus Christ that there would be strife for the title of bishop.
 
 ## Deacon/Servant
 

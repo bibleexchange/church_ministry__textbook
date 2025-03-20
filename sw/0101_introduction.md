@@ -6,9 +6,7 @@ Siyo vyote vinavyofanyika katika kanisa hutoka kwenye Bibilia. Hilo halimaanishi
 
 Tunatakiwa kuwa makini sana tusiige mawazo ya dunia na kuyatumia kanisani. Kama Wakristo, hatupaswi kutazama viongozi wa biashara au wanasiasa kama mfano wa uongozi, lakini viongozi wa kanisa watakuwa tofauti na viongozi wengine wa vitu vya asili. Kile ambacho dunia hufikiri kuhusu kiongozi mzuri siyo kama Biblia inavyosema ni kiongozi mzuri:
 
-> Mathayo 20:25–26
-> Lakini Yesu akawaita, akasema, Mwajua ya kuwa wakuu wa Mataifa huwatawala kwa nguvu, na wakubwa wao huwatumikisha.  
-> Lakini haitakuwa hivyo kwenu; bali mtu ye yote anayetaka kuwa mkubwa kwenu, na awe mtumishi wenu;
+> Mathayo 20:25–26 — Lakini Yesu akawaita, akasema, Mwajua ya kuwa wakuu wa Mataifa huwatawala kwa nguvu, na wakubwa wao huwatumikisha. Lakini haitakuwa hivyo kwenu; bali mtu ye yote anayetaka kuwa mkubwa kwenu, na awe mtumishi wenu;
 
 Pia kuna mambo mengi kwenye tamaduni za kanisa la sasa ambayo siyo kutoka kanuni za kibiblia, ila ni mambo ambayo yaliwekwa na viongozi ambao walitaka kuongeza nguvu zao dhidi ya wengine. Tunapoingia kwenye mafunzo yetu, tunatakiwa kuondoa mawazo yote ya mambo tunayofikiri kuhusu uongozi ili kwamba tuwe tayari kujifunza kile Bibilia inasema kuhusu uongozi.
 
@@ -51,8 +49,7 @@ Viongozi kanisani wanatakiwa kuhakikisha kuwa watu wanaelewa Neno la Mungu na ku
 2. Paulo alikuwa mwalimu (1 Tim. 2:7; 2 Tim. 1 :11)
 3. Mwangalizi anatakiwa aweze kufundisha (1 Tim. 3:2)
 
-> Wakolosai 1:28  
-> ambaye sisi tunamhubiri habari zake tukimwonya kila mtu, na kumfundisha kila mtu katika hekima yote, tupate kumleta kila mtu mtimilifu katika Kristo.
+> Wakolosai 1:28 — ambaye sisi tunamhubiri habari zake tukimwonya kila mtu, na kumfundisha kila mtu katika hekima yote, tupate kumleta kila mtu mtimilifu katika Kristo.
 
 #### Mchungaji hushughulikia mahitaji ya kimwili
 

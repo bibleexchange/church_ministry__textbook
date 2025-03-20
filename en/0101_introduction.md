@@ -6,9 +6,7 @@ Not everything we do in the church comes directly from the Bible. That does not 
 
 We have to be careful that we do not copy the ideas of the world and use them in the church. As Christians, we should not look to business leaders or politicians as examples of leadership, but church leaders will be different from the leaders of natural things. What the world thinks of as a good leader is not what the Bible says is a good leader:
 
-> Matthew 20:25–26  
-> But Jesus called them unto him, and said, Ye know that the princes of the Gentiles exercise dominion over them, and they that are great exercise authority upon them.  
-> But it shall not be so among you: but whosoever will be great among you, let him be your minister;
+> Matthew 20:25–26 — But Jesus called them unto him, and said, Ye know that the princes of the Gentiles exercise dominion over them, and they that are great exercise authority upon them. But it shall not be so among you: but whosoever will be great among you, let him be your minister;
 
 There are also many things from our current church culture that does not come from biblical principles, but are things that were implemented by leaders who wanted to increase their power over others. When we go into our study, we have to clear our minds of all the things that we think about leadership so that we can be ready to learn what the Bible really says about leadership.
 
@@ -68,8 +66,7 @@ The leaders in the church should make sure that the people understand the Word o
 2. Paul was a teacher (1 Tim. 2:7; 2 Tim. 1:11)
 3. The overseer is to be able to teach (1 Tim. 3:2)
 
-> Colossians 1:28  
-> Whom we preach, warning every man, and teaching every man in all wisdom; that we may present every man perfect in Christ Jesus:
+> Colossians 1:28 — Whom we preach, warning every man, and teaching every man in all wisdom; that we may present every man perfect in Christ Jesus:
 
 <!--Titus 1:9 (KJV 1900)
 9Holding fast the faithful word as he hath been taught, that he may be able by sound doctrine both to exhort and to convince the gainsayers.
