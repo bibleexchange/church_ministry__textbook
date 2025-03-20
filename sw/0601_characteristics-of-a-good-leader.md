@@ -204,3 +204,21 @@ Katika 1 Timotheo 1:12, Paulo anasema kwamba yeye mwenyewe haruhusu wanawake kuo
 ### Hitimisho kuhusu jinsia
 
 Hitimisho la mjadala huu mrefu ni watu wanaosema wanawake hawafanyi chochote katika kanisa (ambao ni makanisa ya kati ambayo yalipiga marufuku uimbaji ili wanawake wasiimbe)na wale wanaoona kabisa kuwa hakuna tofauti kati ya wanaume na mwanamke katika huduma. Watu wengi wapo katika ncha hizi mbili. Baadhi wanasema wanawake hawawezi kuhubiri, lakini watawaruhusu wanawake kuimba na kushuhudia. Baadhi wanaamini wanaweza kuwa wahubiri lakini siyo wachungaji au waangalizi.
+
+---
+
+<small>
+
+- [1] This table is adapted from Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 156). Word, Incorporated.
+- [2] Clement I, P., Ignatius, S., Bishop of Antioch, Polycarp, S., Bishop of Smyrna, & Lake, K. (1912–1913). The Apostolic fathers (K. Lake, Ed.; Vol. 1, p. 331). Harvard University Press.
+- [3] Clement I, P., Ignatius, S., Bishop of Antioch, Polycarp, S., Bishop of Smyrna, & Lake, K. (1912–1913). The Apostolic fathers (K. Lake, Ed.; Vol. 1, p. 289). Harvard University Press.
+- [4] Towner, P. H. (2006). The Letters to Timothy and Titus (p. 251). Wm. B. Eerdmans Publishing Co.
+- [5] Towner, P. H. (2006). The Letters to Timothy and Titus (pp. 251–252). Wm. B. Eerdmans Publishing Co.
+- [6] Towner, P. H. (2006). The Letters to Timothy and Titus (p. 252). Wm. B. Eerdmans Publishing Co.
+- [7] Clement I, P., Ignatius, S., Bishop of Antioch, Polycarp, S., Bishop of Smyrna, & Lake, K. (1912–1913). The Apostolic fathers (K. Lake, Ed.; Vol. 2, p. 285). Harvard University Press.
+- [8] Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 171). Word, Incorporated.
+- [9] Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 172). Word, Incorporated.
+- [10] Vincent, M. R. (1887). Word studies in the New Testament (Vol. 4, p. 229). Charles Scribner’s Sons.
+- [11] Towner, P. H. (2006). The Letters to Timothy and Titus (pp. 250–251). Wm. B. Eerdmans Publishing Co.
+
+</small>
