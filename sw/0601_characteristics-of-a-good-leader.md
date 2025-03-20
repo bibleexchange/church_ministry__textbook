@@ -1,6 +1,6 @@
 # Sifa za kiongozi mzuri
 
-Tuna orodha ya sifa ambazo ni nzuri kwa waangalizi (askofu) (1 Tim. 3:1-7), mashemasi (1 Tim. 3:8-13), na wazee (Tit. 1:5-9). Wakati orodha hizi ni nzuri kwetu kuelewa Paulo alikuwa anatazamia kwa kiongozi mzuri, tunatakiwa kuzikumbuka katika muundo wake halisi. Hizi ni barua zilizoandikwa kwa watu mahususi kwa sababu. Kwa sehemu, Paulo alikuwa anamwandikia Timotheo na Tito kujaribu kuzuia mafundisho potofu ambayo yalikuwa yanasababisha matatizo katika kanisa (1 Tim. 1:6-7; Tit. 1:10-11). Hivi ni vitu ambavyo vilikuwa kinyume na kile walimu wa uongo walikuwa wanafanya:<sup>[1]</sup>
+Tuna orodha ya sifa ambazo ni nzuri kwa waangalizi (askofu) (1 Tim. 3:1–7), mashemasi (1 Tim. 3:8–13), na wazee (Tit. 1:5–9). Wakati orodha hizi ni nzuri kwetu kuelewa Paulo alikuwa anatazamia kwa kiongozi mzuri, tunatakiwa kuzikumbuka katika muundo wake halisi. Hizi ni barua zilizoandikwa kwa watu mahususi kwa sababu. Kwa sehemu, Paulo alikuwa anamwandikia Timotheo na Tito kujaribu kuzuia mafundisho potofu ambayo yalikuwa yanasababisha matatizo katika kanisa (1 Tim. 1:6–7; Tit. 1:10–11). Hivi ni vitu ambavyo vilikuwa kinyume na kile walimu wa uongo walikuwa wanafanya:<sup>[1]</sup>
 
 | Viongozi wa Kanisa                                                                                    | Walimu wa Uongo                                                                                                                                                                                                                                                                                                  |
 | ----------------------------------------------------------------------------------------------------- | ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
@@ -24,7 +24,7 @@ Zaidi ya hayo hizi orodha ndefu katika 1 Timotheo na Tito, tuna orodha fupi amba
 - Matendo 6:3: "Basi ndugu, chagueni watu saba miongoni mwenu, walioshuhudiwa kuwa wema, wenye kujawa na Roho, na hekima, ili tuwaweke juu ya jambo hili;"
 - 2 Timetheo 2:24: "Tena haimpasi mtumwa wa Bwana kuwa mgomvi; bali kuwa mwanana kwa watu wote, awezaye kufundisha, mvumilivu;"
 
-Didache ina orodha inayofanana katika 15:1-2:
+Didache ina orodha inayofanana katika 15:1–2:
 
 > Jichagulieni kwaajili yenu waangalizi na mashemasi waaminifu kwa Bwana, watu wapole na wasiopenda fedha, watu wa kuaminiwa na waliothibitishwa kwani wanawahudumia ninyi pia huduma ya manabii na walimu. Hivyo msiwadharau kwa kuwa ni watu wenu wa muhimu pamoja na manabii na walimu.<sup>[2]</sup>
 
@@ -40,7 +40,7 @@ Hatutaangalia kila kipengele katika orodha hizi, bali tutachanga orodha hizi pam
 
 Wahubiri wote wanaweza kusema waliitwa na Mungu, lakini tunawezaje kujua kama watakuwa viongozi wazuri katika kanisa? Tumeshasema mwanzo kuwa kinachomfanya kiongozi mzuri katika mambo ya dunia sicho kinachomfanya kiongozi mzuri katika kanisa.
 
-Hatutakiwi tu kumuangalia mtu ambaye ana muonekano imara au ni muhubiri "mwenye nguvu." Tunatakiwa kuangalia wanaishije maisha yao. Yesu alisema tutautambua mti kwa matunda yake (Mat. 7:15-20). " Huduma" pekee katika orodha katika 1 Timotheo na Tito ni kwamba waangalizi na wazee wanatakiwa wawe na uwezo wa kufundisha. Hiyo inatuonyesha kwamba Paulo alichukulia tabia kuwa ya muhimu zaidi kuliko uwezo wa kuongea.
+Hatutakiwi tu kumuangalia mtu ambaye ana muonekano imara au ni muhubiri "mwenye nguvu." Tunatakiwa kuangalia wanaishije maisha yao. Yesu alisema tutautambua mti kwa matunda yake (Mat. 7:15–20). "Huduma" pekee katika orodha katika 1 Timotheo na Tito ni kwamba waangalizi na wazee wanatakiwa wawe na uwezo wa kufundisha. Hiyo inatuonyesha kwamba Paulo alichukulia tabia kuwa ya muhimu zaidi kuliko uwezo wa kuongea.
 
 Sifa hizi nzuri sio tu vitu maalumu kwa viongozi pekee, bali zinatarajiwa kwa kila Mkristo.
 
@@ -64,9 +64,9 @@ Hii ilitakiwa ifundishwe pia kwa wazee (Tit. 2:2).
 
 ### Anayejitawala (busara katika SUV) (1 Tim. 3:2; Tito 1:8)
 
-Neno "anayejitawala" linagusa maana mbalimbali (upole, kiasi, ukatili)lakini inatoa hisia za jumla za kiasi juu ya tabia na misukumo na hisia chini yake."<sup>[5]</sup> Sio kila kitu ni kizuri kwetu. Tunatakiwa tujifunze kusema "hapana" katika vitu tunavyovihitaji. Tunapokuja kwa Kristo, tunatakiwa tujifunze kukataa uasi na tamaa za kidunia (Tit. 2:11-12).
+Neno "anayejitawala" linagusa maana mbalimbali (upole, kiasi, ukatili)lakini inatoa hisia za jumla za kiasi juu ya tabia na misukumo na hisia chini yake."<sup>[5]</sup> Sio kila kitu ni kizuri kwetu. Tunatakiwa tujifunze kusema "hapana" katika vitu tunavyovihitaji. Tunapokuja kwa Kristo, tunatakiwa tujifunze kukataa uasi na tamaa za kidunia (Tit. 2:11–12).
 
-Hii ni kwaajili ya waamini wote na sio tu viongozi (1 Tim. 2:9, 15; Tit. 2:2, 4-6).
+Hii ni kwaajili ya waamini wote na sio tu viongozi (1 Tim. 2:9, 15; Tit. 2:2, 4–6).
 
 ### Asiwe mwepesi wa hasira (1 Tim. 3:3; Tit. 1:7)
 
@@ -96,7 +96,7 @@ Mchungaji wa Hermasi, ambayo ilikuwa ni taarifa iliyotumika kwaajili ya mafundis
 
 Hii inazungumzia ukuaji wa kiroho. Mwangalizi hatakiwi kuwa muongofu mpya.
 
-Viongozi bado wana hekima itokayo katika maisha, hivyo tunatakiwa kujifunza kutoka kwao (Tit. 2:3-4) na tuwaheshimu (1 Tim. 5:5)
+Viongozi bado wana hekima itokayo katika maisha, hivyo tunatakiwa kujifunza kutoka kwao (Tit. 2:3–4) na tuwaheshimu (1 Tim. 5:5)
 
 ## Hali ya ndoa
 
@@ -106,7 +106,7 @@ Je ni lazima mtu awe ameoa au kuolewa ndio awe kiongozi ndani ya kanisa? Mwangal
 
 Hii haiwezekani, kwa kuwa Paulo hakuoa (1 Kor. 7:8). Asingeweza kuwaambia watu wafanye kitu ambacho yeye hakuweza kufanya. Mitume wengine walikuwa na wake, na Paulo alikuwa na hiyo haki ya kuoa. Alichagua kutokuoa ili awe na uhuru zaidi kusafiri na kuhubiri injili (1 Kor. 9:5).
 
-Paulo aliona kuwa ilikuwa vizuri kwa watu ambao hawajaoa kutokutafuta kuoa (1 Kor. 7:25-28). Hii ni kwasababu wale ambao hawajaoa watajali tu kuhusu mambo ya kiroho, lakini wale waliooa watatakiwa kujali kuhusu mambo ya kiroho na ya kimwili (Mat. 19: 9-12).
+Paulo aliona kuwa ilikuwa vizuri kwa watu ambao hawajaoa kutokutafuta kuoa (1 Kor. 7:25–28). Hii ni kwasababu wale ambao hawajaoa watajali tu kuhusu mambo ya kiroho, lakini wale waliooa watatakiwa kujali kuhusu mambo ya kiroho na ya kimwili (Mat. 19: 9–12).
 
 Kuoa sio dhambi. Inaweza hata kuwa kitu kizuri. Lakini inaweza kuweka kikomo kwa muda wako, rasilimali, na uwezo wa kusonga mbele.
 
@@ -138,22 +138,21 @@ Je ni lazima kiongozi wa kanisa awe mwanaume?
 
 ### katika Biblia, kuna wanawake wengi walitumika kwaajili ya Mungu
 
-In the Old Testament:
 Katika Agano la Kale:
 
-- Miriamu (Kutoka 15:20)
-- Debora (Waamuzi 4:4)
-- Hilkia (2 Fal. 22:14; 2 Nyak. 34:22)
-- Mke wa Isaya (Isaya 8:3)
-- Wana wa kike na wa kiume watatabiri (Yoeli 2:28-29)
+- Miriamu (Kut. 15:20)
+- Debora (Amu. 4:4)
+- Hilkia (2 Fal. 22:14; 2 Nya. 34:22)
+- Mke wa Isaya (Isa. 8:3)
+- Wana wa kike na wa kiume watatabiri (Yoe. 2:28–29)
 
 Katika Agano Jipya:
 
-- Elizabeti (Lk. 1:41-42)
-- Mariamu mama yake Yesu (Lk. 1:46-55)
-- Anna (Lk. 2:36-38)
-- Wengine wasiotajwa waliokuwa wakimhudumia Yesu kwa mali zao (mfazili) (Lk. 8:1-3)
-- Wanawake wafuasi wa Yesu (Mk. 15:40-41)
+- Elizabeti (Lk. 1:41–42)
+- Mariamu mama yake Yesu (Lk. 1:46–55)
+- Anna (Lk. 2:36–38)
+- Wengine wasiotajwa waliokuwa wakimhudumia Yesu kwa mali zao (mfazili) (Lk. 8:1–3)
+- Wanawake wafuasi wa Yesu (Mk. 15:40–41)
 - Maria Magdalena (Yn. 20:18)
 - Tabita (Mdo. 9:36)
 - Lidia (Mdo. 16:14)
@@ -163,16 +162,16 @@ Katika Agano Jipya:
 - Yunia (Rum. 16:7)
 - Mama yake Rufo (Rum. 16:13)
 - Mariamu, Trifaina, Trifosa, na Persisi "Aliyejitahidi sana katika Bwana" (Rum. 16:6, 12)
-- Euodia na Sintike (Flp. 4:2-3)
+- Euodia na Sintike (Flp. 4:2–3)
 - Loisi na Eunike (2 Tim. 1:5)
-- Wazee wa kike wanaofundisha wadogo (Tit. 2:3-5)
+- Wazee wa kike wanaofundisha wadogo (Tit. 2:3–5)
 - Petro alisema wana wa kike watatabiri
 
 Mbali na hii, Yesu alikuwa na maongezi mazito ya kithiolojia na wanawake, hii inaonyesha kuwa wanawake waliweza kufikiri kuhusu mambo ya Mungu.
 
 ### Sasa kwanini Paulo alisema wanawake wasiruhusiwe kufundisha katika kanisa?
 
-1 Timotheo 2:11-12 na 1 Wakorintho 14:34-35 haya ni maandiko mawili ambayo yanaonekana kuonyesha kuwa Paulo hawaruhusu wanawake kuongea katika kanisa.
+1 Timotheo 2:11–12 na 1 Wakorintho 14:34–35 haya ni maandiko mawili ambayo yanaonekana kuonyesha kuwa Paulo hawaruhusu wanawake kuongea katika kanisa.
 
 Baadhi ya watu wanafikiri kwamba kwasababu ya mistari hii wanawake wasiruhusiwe kuwa viongozi katika kanisa. Watu wengine wanasoma kuhusu wanawake wanaofanya kazi ya Mungu na kufikiri kwamba wanawake wanaweza kuwa viongozi ndani ya kanisa. Bila kujali kile utakachoamua, unatakiwa kutafuta njia ya kutengeneza nyaraka hizi za Paulo na dhana kuwa wanawake wengi walihudumu katika kanisa la kwanza.
 

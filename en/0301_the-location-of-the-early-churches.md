@@ -4,17 +4,17 @@
 
 Immediately after the Day of Pentecost, we see the church started the practice of meeting every day in the house of one of its members and having a meal. Every day they would do this in someone else's house (Acts 2:46; 5:42). This practice of meeting in houses continued through all the New Testament. When Paul was in Ephesus, he acknowledged that the main way that the church spread doctrine was "from house to house" (Acts 20:20). Following is a list of people who had churches in their houses:
 
-1. Aquila and Priscilla (1 Cor. 16:19; Rom. 16:3-5)
+1. Aquila and Priscilla (1 Cor. 16:19; Rom. 16:3–5)
 2. Nympha (Col. 4:15)
-3. Philemon (Philemon 1:1-2)
+3. Philemon (Philemon 1:1–2)
 4. Lydia (Acts 16:40)
 5. Possibly Gaius (Rom. 16:23)
 
 ### Household codes
 
-Because the early church met in houses, there are several times in the epistles that we see lists of rules for each person in the family (Eph. 5:21-6:9; Col. 3:18-4; 1 Pet. 2:18-3:7). These were called "household codes" and they were a common thing in the Roman world.
+Because the early church met in houses, there are several times in the epistles that we see lists of rules for each person in the family (Eph. 5:21–6:9; Col. 3:18–4; 1 Pet. 2:18–3:7). These were called "household codes" and they were a common thing in the Roman world.
 
-1 Timothy 5:1-2 tels us that we are to treat the people in the church as family members (See also Gal. 6:10; Heb. 13:1; 1 Pet. 2:17; 1 John 3:16).
+1 Timothy 5:1–2 tels us that we are to treat the people in the church as family members (See also Gal. 6:10; Heb. 13:1; 1 Pet. 2:17; 1 John 3:16).
 
 ### The church is people
 
@@ -22,7 +22,7 @@ The word church is never used in the New Testament to refer to a building, but i
 
 ## Transition from Synagogues
 
-We must remember that the church at first did not think of itself as a new religion, but as a continuation of the Jewish religion. Many times in the New Testament, the teachings of Christ started in the Jewish synagogues. Jesus himself taught in synagogues (Luke 4:15-16; Matt. 4:23) and so did Paul immediately after he became a Christian (Acts 9:20) and on his missionary journeys to Antioch of Pisidia (Acts 13:14-16), Iconium (Acts 14:1), Thessalonica (Acts 17:1-2), and Corinth (Acts 18:4).
+We must remember that the church at first did not think of itself as a new religion, but as a continuation of the Jewish religion. Many times in the New Testament, the teachings of Christ started in the Jewish synagogues. Jesus himself taught in synagogues (Luke 4:15–16; Matt. 4:23) and so did Paul immediately after he became a Christian (Acts 9:20) and on his missionary journeys to Antioch of Pisidia (Acts 13:14–16), Iconium (Acts 14:1), Thessalonica (Acts 17:1–2), and Corinth (Acts 18:4).
 
 James refers to the Christian assembly as a "synagogue" (James 2:2).
 
@@ -30,10 +30,10 @@ James refers to the Christian assembly as a "synagogue" (James 2:2).
 
 We are not exactly sure what exactly happened in the synagogue as part of regular worship, there are some things we know from reading the New Testament:
 
-1. A central element was reading of Scripture (Luke 4:16-20; Acts 13:15; 15:21).
-2. After readings, there was often teaching and interpretation of the Scripture (Luke 4:20-27; Acts 13:15-16).
+1. A central element was reading of Scripture (Luke 4:16–20; Acts 13:15; 15:21).
+2. After readings, there was often teaching and interpretation of the Scripture (Luke 4:20–27; Acts 13:15–16).
 3. There was prayer (Matt. 6:5; Mark 12:40).
-4. There were special seating arrangements for wealthy and important people (Matt. 23:6; James 2:2-3).
+4. There were special seating arrangements for wealthy and important people (Matt. 23:6; James 2:2–3).
 5. There were leaders in the synagogue, though we do not know exactly what their duties were (Luke 8:41; Mark 5:22; Acts 13:15).
 6. Synagogue worship took place primarily on the Sabbath (Luke 4:16; Acts 13:14; 17:2).
 

@@ -2,7 +2,7 @@
 
 Leo tuna wazo la kiongozi mmoja kanisani, ambaye anawajibika na maamuzi yote kanisani na anayetunza mahitaji ya kiroho na kimwili kanisani. Kuna viashiria katika maandiko kuwa katika kanisa la mwanzo hakukuwa na kiongozi hata mmoja, ila viongozi tofauti kila mmoja na majukumu. Baadhi walifundisha na kuhubiri wakati wengine walihusika na mahitaji ya kimwili. Hakuna alama kwenye Maandiko kwamba nafasi moja ilikuwa muhimu kuliko nyingine au kwamba mtu mmoja alikuwa na nguvu kuliko wengine.
 
-Agano Jipya inatoa sifa za baadhi ya nafasi za uongozi, ila haielezi hizo nafasi zilikuwaje na zilipaswa ziweje. Tunapaswa kuorodhesha aina za viongozi ambazo zina vyeo tofauti. 1 Timotheo 3:1-13 inataja waangalizi (maaskofu) na mashemasi, na Waefeso 4:11 inataja mitume, nabii, mwinjilist, mchungaji, na mwalimu. Katika 1 Wakorintho 12:28 tuna orodha inayoonyesha vyeo vitatu kutoka Waefeso 4:11 (mitume, manabii, na walimu). Tunaweza kusema orodha katika Waefeso ni watu waliochaguliwa na Mungu kwa ajili ya kanisa na orodha kwenye 1 Timotheo ni viongozi waliochaguliwa na wanadamu kanisani. Kunaweza kuwa na utofauti mkubwa kati ya orodha hizo mbili. Mtu anaweza kuwa mchungaji na waangalizi na mtu mwingine labda mchungaji na siyo waangalizi. Didache, ambayo ilikuwa ni nyaraka zilizotumika na kanisa la kwanza, imeweka wazi kwa kusema kuwa watu ambao ni maaskofu au mashemasi kufanya kazi ya manabii na walimu:
+Agano Jipya inatoa sifa za baadhi ya nafasi za uongozi, ila haielezi hizo nafasi zilikuwaje na zilipaswa ziweje. Tunapaswa kuorodhesha aina za viongozi ambazo zina vyeo tofauti. 1 Timotheo 3:1–13 inataja waangalizi (maaskofu) na mashemasi, na Waefeso 4:11 inataja mitume, nabii, mwinjilist, mchungaji, na mwalimu. Katika 1 Wakorintho 12:28 tuna orodha inayoonyesha vyeo vitatu kutoka Waefeso 4:11 (mitume, manabii, na walimu). Tunaweza kusema orodha katika Waefeso ni watu waliochaguliwa na Mungu kwa ajili ya kanisa na orodha kwenye 1 Timotheo ni viongozi waliochaguliwa na wanadamu kanisani. Kunaweza kuwa na utofauti mkubwa kati ya orodha hizo mbili. Mtu anaweza kuwa mchungaji na waangalizi na mtu mwingine labda mchungaji na siyo waangalizi. Didache, ambayo ilikuwa ni nyaraka zilizotumika na kanisa la kwanza, imeweka wazi kwa kusema kuwa watu ambao ni maaskofu au mashemasi kufanya kazi ya manabii na walimu:
 
 > Didache 15:1  
 > Chagua, kwahiyo, kwa ninyiwenyewe waangalizi na mashemasi wanaostahili kwa Bwana, watu ambao ni wapole na asiwe na tamaa, mkweli na aliyedhibitika, kwa kuwa wanafanya huduma ya manabii na uwalimu.<sup>[1]</sup>
@@ -32,16 +32,16 @@ Yesu aliitwa mtume (Erb. 3:1), pengine ni kwakuwa alileta ujumbe wa injili ulimw
 
 Didache ya mitume hutoa miongozo jinsi ya kujua kama mtume ni kweli. Kama watauliza pesa au kuchukua faida ya ukarimu wako, sasa watakuwa siyo mitume wa kweli. Hii inaonyesha kwamba kwenye kanisa la mwanzo kulikuwa na watu wakitafuta faida zao wenyewe:
 
-> Didache 11:3-6  
+> Didache 11:3–6  
 > Kuhusu Mitume na Manabii, wanafanya kulingana na agizo la injili. Kila mtume akija kwako apokelewe kama Bwana, ila asikae zaidi ya siku moja, au kama atakaa kwa siku ya pili tena; ila kama atakaa kwa siku tatu, atakuwa nabii wa uwongo. Na wakati mtume anaondoka asipokee chochote ila mkate mpaka afike mahali pa kupumzika; ila kama atauliza pesa, atakuwa nabii wa uwongo.
 
 ### Shahidi wa Kristo aliyeteswa
 
-"Kupitia maneno ya Paulo katika 1 Wakorintho 9:1-2 ingewezana kumaanisha kwamba sifa za mtume ni kuwa amemuona Bwana aliyefufuka, na kutumwa na yeye, na kuja kujiingiza kama mshiriki mwanzilishi (Efe. 2:20) na mfanyakazi kwaajili ya kulijenga kanisa."<sup>[3]</sup>
+"Kupitia maneno ya Paulo katika 1 Wakorintho 9:1–2 ingewezana kumaanisha kwamba sifa za mtume ni kuwa amemuona Bwana aliyefufuka, na kutumwa na yeye, na kuja kujiingiza kama mshiriki mwanzilishi (Efe. 2:20) na mfanyakazi kwaajili ya kulijenga kanisa."<sup>[3]</sup>
 
 Hawa ndio watu walioitwa mitume katika Agano Jipya:
 
-- Wale kumi na mbili (Mt. 10:2-4; **Lk. 6:13**; Ufu. 21:14)
+- Wale kumi na mbili (Mt. 10:2–4; **Lk. 6:13**; Ufu. 21:14)
 - Paulo (Rum. 1:1)
 - Barnaba (Mdo. 14:14)
 - Yakobo ndugu yake Bwana (Gal. 1:19)
@@ -57,15 +57,15 @@ Leo hatuwezi kuwa mitume katika hisia za shahidi katika ufufuko wa Yesu, lakini 
 
 Nabii ni yule anayezungumza kama mjumbe wa Mungu moja kwa moja. Hawa ni baadhi ya manabii katika Agano Jipya:
 
-- Barnaba, Simoni aitwaye Nigeri, Lukio Mkirene, na Manaeni (Mdo. 13:1-3)
+- Barnaba, Simoni aitwaye Nigeri, Lukio Mkirene, na Manaeni (Mdo. 13:1–3)
 - Yuda (Mdo. 15:32)
 - Sila (Mdo. 15:32)
-- Watoto wa kike nne wa Philipo (Mdo. 21:8-9)
+- Watoto wa kike nne wa Philipo (Mdo. 21:8–9)
 - Agabo (Mdo. 21:10)
 
 Mchungaji wa Hermasi, ambayo ilikuwa hati iliyotumiwa na kanisa la kwanza, inaeleza jinsi ya kujua kama nabii ni kweli au la:
 
-> Mchungaji wa Hermasi, Mandate 11:7-8  
+> Mchungaji wa Hermasi, Mandate 11:7–8  
 > "Kwa namna gani, halafu," nikasema mimi,"Bwana je mtu anaweza kumjua nabii wa kweli na nabii wa uongo?" "Sikiliza," akasema, "kuhusiana na manabii wote, na kama nitakavyokuambia, hivyo unaweza kumjua nabii wa kweli na wa uongo. Utamjua mtu mwenye roho ya Mungu kwa maisha yake. Kwa upande mmoja yeye aliye na roho itokayo juu ni mpole na muungwana, mnyenyekevu na hujilinda na maovu yote na matamanio ya uasi wa ulimwengu huu na hujifanya masikini kuliko watu wote, na hajibu chochote anapokabiliwa wala haongei peke yake (kwani Roho Mtakatifu mtu anapotamani kuongea), balikatika wakati ambao Mungu anatamani yeye azungumze."
 
 ## Wainjilisti
@@ -76,7 +76,7 @@ Philipo alikuwa mwinjilisti (Mdo. 21:8).(Katika SUV inatafsiriwa kama "mhubiri w
 
 ## Mchungaji
 
-Jina limetumika kwa mara moja tu katika Agano Jipya kama neno kwaajili ya kiongozi wa kanisa (Efe. 4:11) na mara mbili kama kitendo (1 Pet. 5:1-4; Mdo. 20:28).
+Jina limetumika kwa mara moja tu katika Agano Jipya kama neno kwaajili ya kiongozi wa kanisa (Efe. 4:11) na mara mbili kama kitendo (1 Pet. 5:1–4; Mdo. 20:28).
 
 Japokuwa kwa sasa hili ni jina maarufu kwa kiongozi wa kanisa, tuna taarifa ndogo sana kutoka katika Biblia kuhusu majukumu ya mchungaji yalikuwa ni yapi.
 
@@ -90,16 +90,16 @@ Sio kila mtu anatakiwa atamani kuwa mwalimu, kwasababu mwalimu atapata hukumu ku
 
 Didache anatuambia namna ya kumjua mwalimu mzuri:
 
-> Didache 11:1-2  
+> Didache 11:1–2  
 > Yeyote anayekuja na kukufundisha vitu vyote hivi nilivyovitaja hapo awali, mpokee. Lakini kama mwalimu mwenyewe amepotoka na kufundisha mafundisho tofauti kuharibu hivi vitu, usimsikilize, bali kama mafundisho yake yatakuwa ya kuongeza haki na ufahamu wa Bwana, mpokee kama Bwana.
 
 ## Mwangalizi/Askofu
 
 Neno la Kigiriki ni _episkopē_, ikimaanisha "mwangalizi." Kwa kweli, _Neno Biblia Takatifu_ linatafsiri hii kama "mwangalizi." Cheo _mwangalizi_ "katika matumizi yake halisi, angalau mpaka muda wa Inyasi, ...lilikatazwa kwa wale waliokuwa waangalizi wa makanisa ya nyumbani. ...Ofisi ilijulikana kama kawaida na ilijumuisha nafasi yeyote, ya kidunia au kanisa ambalo 'uangalizi' ulikuwa wa muhimu."<sup>[5]</sup>
 
-Baadhi ya watu wanafikiri kwamba waangalizi na mashemasi walikuwa kitu kimoja, lakini Wafilipi 1:1 inawaonyesha kama nafasi mbili tofauti. 1 Timotheo 3:1-7 inatoa orodha ya sifa za mwangalizi. Didache pia inatoa orodha ya sifa:
+Baadhi ya watu wanafikiri kwamba waangalizi na mashemasi walikuwa kitu kimoja, lakini Wafilipi 1:1 inawaonyesha kama nafasi mbili tofauti. 1 Timotheo 3:1–7 inatoa orodha ya sifa za mwangalizi. Didache pia inatoa orodha ya sifa:
 
-> Didache 15:1-4  
+> Didache 15:1–4  
 > Chagueni ninyi wenyewe waangalizi na mashemasi wanaomstahili Bwana, watu wapole na sio wenye kupenda fedha, wakweli na walioathibitishwa, kwani wanawatumikia nimyi pia huduma ya manabii na walimu. Hivyo msiwadharau kwa kuwa ni watu wenu wa heshima pamoja na manabii na walimu. Na muonyane ninyi kwa ninyi kwa Amani na sio kwa hasira kama injili zisemavyo, na yeyote yule asiongee na yeyote aliyemkosea jirani yake wala kumruhusu asikie neno kutoka kwako mpaka atakapotubu. Lakni maombi yako na msaada na matendo yako yote ufanye kama injili ya Bwana wetu inavyosema.
 
 ### Mafundisho ya Inyasi juu ya uongozi wa kanisa mfumo wa uongozi wa Inyasi
@@ -115,7 +115,7 @@ Japokuwa wazo la askofu kuwa na nguvu kuliko watu wengine katika kanisa haitoki 
 
 ## Mashemasi/Watumishi
 
-1 Timotheo 3:8-13 inatupa sifa za mashemasi. Neno hili kwa Kigiriki ni _diakonis_, ikiwa na maana "mtumishi." _Biblia Habari Neno_ inatafsiri kuwa ni "wasaidizi." Kigiriki ina neno tofauti kwa mtumwa (duolos), ambalo sio neno linalotumika hapa.
+1 Timotheo 3:8–13 inatupa sifa za mashemasi. Neno hili kwa Kigiriki ni _diakonis_, ikiwa na maana "mtumishi." _Biblia Habari Neno_ inatafsiri kuwa ni "wasaidizi." Kigiriki ina neno tofauti kwa mtumwa (duolos), ambalo sio neno linalotumika hapa.
 
 ### Nafasi zisizo rasmi
 
@@ -142,7 +142,7 @@ Tukilinganisha mahitaji ya mwangalizi na shemasi katika 1 Timotheo sura ya tatu,
 
 Hili ni jina maarufu sana kwa viongozi wa kanisa. Neno la Kigiriki ni _presbyteros_, ambalo linamaanisha "mtu mzee." Katika tafsiri zote za Kiswahili, maneno yote mawili yanatafsiriwa kama "mzee."
 
-Inaweza tu kumaanisha mzee wa pekee katika kanisa, lakini pia inaweza kuwa nafasi iliyochaguliwa, kama tunavyoona katika Matendo 14:23 wakati Paulo na Barnaba walipochagua wazee ndani ya kanisa. Tito 1:5-9 inatoa orodha ya sifa za wazee. Policarpi ambaye alifundishwa na Yohana, pia alitoa orodha ya sifa za wazee:
+Inaweza tu kumaanisha mzee wa pekee katika kanisa, lakini pia inaweza kuwa nafasi iliyochaguliwa, kama tunavyoona katika Matendo 14:23 wakati Paulo na Barnaba walipochagua wazee ndani ya kanisa. Tito 1:5–9 inatoa orodha ya sifa za wazee. Policarpi ambaye alifundishwa na Yohana, pia alitoa orodha ya sifa za wazee:
 
 > Na wazee pia wanatakiwa kuwa na huruma, kuwahurumia watu wote, kuwarudisha kondoo waliopotea, kuwatembelea wasiojiweza, wasimtenge mjane au yatima au masikini: bali kutoa siku zote katika hicho ambacho ndicho chenye heshima machoni pa Mungu na wanadamu, kuepukana na hasira, kuheshimu watu, kuepuka hukumu zisizo za haki, kuwa mbali na kupenda fedha, kutokuwa wepesi kuamini kila lisemwalo na mtu, wasiwe wepesi wa kuhukumu, wakijua kuwa wote tu wadeni wa dhambi.<sup>[12]</sup>
 

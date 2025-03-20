@@ -64,7 +64,7 @@ Acts 20:28–31 (KJV 1900)
 
 The leaders in the church should make sure that the people understand the Word of God and pray for them when they have trouble in life.
 
-1. Jesus went to all the villages teaching and preaching (Matt. 9:35; Mark 1:38-39)
+1. Jesus went to all the villages teaching and preaching (Matt. 9:35; Mark 1:38–39)
 2. Paul was a teacher (1 Tim. 2:7; 2 Tim. 1:11)
 3. The overseer is to be able to teach (1 Tim. 3:2)
 
@@ -78,18 +78,18 @@ He must protect against false doctrine-->
 
 #### The shepherd takes care of physical needs
 
-In Acts chapter 6, there is a story about the apostles. They were feeding the widows daily. They said they needed to find someone else to do that work, because when they were feeding people physical food, they were not able to have the time to minister in the Word of God (Acts 6:1-8).
+In Acts chapter 6, there is a story about the apostles. They were feeding the widows daily. They said they needed to find someone else to do that work, because when they were feeding people physical food, they were not able to have the time to minister in the Word of God (Acts 6:1–8).
 
 Caring for physical needs of people is a neglected aspect of Christian ministry, because like the apostles, we say we cannot leave the preaching of the Word to serve tables. But they still made sure the people were fed, even though they did not do it themselves. They found other leaders who could do that work. As a church, we cannot separate the spiritual needs of the people from the physical needs. There are many places in the New Testament that tell to care for the physical needs of people:
 
-1. Jesus not only taught the people, but He also gave them physical food (Matthew 15:29-32)
-2. Jesus will punish those who ignore the poor (Matthew 25:31-46)
+1. Jesus not only taught the people, but He also gave them physical food (Matthew 15:29–32)
+2. Jesus will punish those who ignore the poor (Matthew 25:31–46)
 3. The deacons and overseers were to be "given to hospitality" (1 Tim. 3:2; Titus 1:8)
 4. "Pure religion" is to help the widows and orphans (James 1:27)
-5. We cannot only pray for someone if they have a need, but we need to help them (James 2:15-17)
-6. The early church shared all their possessions, so no one had any needs (Acts 4:32-35)
-7. We do not have the love of God if we ignore the poor (1 John 3:17-18)
-8. We are to help people in the church and outside of the church (Rom. 12:13; Gal. 6:10; Philippians 2:4; 1 Tim. 5:8; 6:17-18; Heb. 13:16)
+5. We cannot only pray for someone if they have a need, but we need to help them (James 2:15–17)
+6. The early church shared all their possessions, so no one had any needs (Acts 4:32–35)
+7. We do not have the love of God if we ignore the poor (1 John 3:17–18)
+8. We are to help people in the church and outside of the church (Rom. 12:13; Gal. 6:10; Philippians 2:4; 1 Tim. 5:8; 6:17–18; Heb. 13:16)
 
 These commands for helping the poor are for everyone in the church and not only the leaders, but leaders need to be an example of these things.
 
@@ -103,13 +103,13 @@ Timothy was young, so some people did not respect him. Paul told him to not let 
 
 We do not force people to do what is right, but we do what is right and others will see and follow (I Pet. 5:3).
 
-Jesus condemned the religious leaders because they told the people to do one thing, but did something different (Matt. 23:2-3). Paul said something similar in Romans 2:21-23.
+Jesus condemned the religious leaders because they told the people to do one thing, but did something different (Matt. 23:2–3). Paul said something similar in Romans 2:21–23.
 
 If we follow Jesus, when people follow us, they are really following Jesus (1 Cor. 11:1).
 
 ### A leader builds up
 
-The reason that God gave ministers to the church was so that they could build up the church (Eph. 4:11-13). This is not talking about building up a building, but about people growing spiritually until they become like Jesus.
+The reason that God gave ministers to the church was so that they could build up the church (Eph. 4:11–13). This is not talking about building up a building, but about people growing spiritually until they become like Jesus.
 
 Every act of worship in the church should be to build up the people (1 Cor. 14:26).
 

@@ -4,17 +4,17 @@
 
 Mara tu baada ya siku ya pentekoste, tunaona kanisa lilianza kukutana kila siku katika nyumba ya mmojawapo wa washirika na kula pamoja. Kila siku walifanya hivi katika nyumba ya mmoja wa washirika wao (Mdo. 2:46; 5:42). Utendaji huu wa kukutana katika nyumba uliendelea hata mapaka Agano Jipya. Wakati Paulo alipokuwa Efeso, aligundua kuwa njia kuu ambayo kanisa lilieneza mafundisho ni katika "nyumba kwa nyumba" (Mdo. 20:20). Ifuatayo ni orodha ya watu ambao walikuwa na makanisa katika nyumba zao:
 
-1. Akila na Priska (1 Kor. 16:19; Rum. 16:3-5)
+1. Akila na Priska (1 Kor. 16:19; Rum. 16:3–5)
 2. Nimfa (Kol. 4:15)
-3. Filemoni (Flm. 1:1-2)
+3. Filemoni (Flm. 1:1–2)
 4. Lidia (Mdo. 16:40)
 5. Labda Gayo (Rum. 16:23)
 
 ### Alama za kifamilia
 
-Kwakuwa makanisa ya kwanza yalikutana nyumbani, kuna nyakati kadhaa ambazo katika maandiko tunaona orodha ya sheria kwaajili ya kila mtu katika familia (Efe. 5:21-6:9; Kol. 3:18-4; 1 Pet. 2:18-3:7). Hizi zilikuwa zinaitwa "alama za kifamilia" na zilikuwa ni kitu cha kawaida katika dunia ya Kirumi.
+Kwakuwa makanisa ya kwanza yalikutana nyumbani, kuna nyakati kadhaa ambazo katika maandiko tunaona orodha ya sheria kwaajili ya kila mtu katika familia (Efe. 5:21–6:9; Kol. 3:18–4; 1 Pet. 2:18–3:7). Hizi zilikuwa zinaitwa "alama za kifamilia" na zilikuwa ni kitu cha kawaida katika dunia ya Kirumi.
 
-1 Timotheo 5:1-2 inatuambia kuwa tunatakiwa tuwachukulie watu katika kanisa kama mwanafamilia (Agalia pia Gal. 6:10; Ebr. 13:1; 1 Pet. 2:17; 1 Yoh. 3:16).
+1 Timotheo 5:1–2 inatuambia kuwa tunatakiwa tuwachukulie watu katika kanisa kama mwanafamilia (Agalia pia Gal. 6:10; Ebr. 13:1; 1 Pet. 2:17; 1 Yoh. 3:16).
 
 ### Kanisa ni watu
 
@@ -22,7 +22,7 @@ Neno kanisa halijawahi kutumika katika Agano Jipya likimaanisha jengo, bali mara
 
 ## Mpito kutoka katika masinagogi
 
-Tunatakiwa kukumbuka kuwa kanisa mwanzo halikujifikiria lenyewe kama dini mpya, bali kama mwendelezo wa dini ya Kiyahudi. Mara nyingi katika Agano Jipya, mafundisho ya Yesu yalianzia katika masinagogi ya Kiyahudi. Yesu mwenyewe alifundisha katika masinagogi (Lk. 4:15-16; Mat. 4:23) na hivyo hivyo Paulo mara tu baaada ya kuwa Mkristo (Acts 9:20) na katika safari zake za umishonari hadi Antiokia ya Pisidia (Mdo. 13:14-16), Ikoniamu (Mdo. 14:1), Thesalonike (Mdo. 17:1-2), na Korintho (Mdo. 18:4).
+Tunatakiwa kukumbuka kuwa kanisa mwanzo halikujifikiria lenyewe kama dini mpya, bali kama mwendelezo wa dini ya Kiyahudi. Mara nyingi katika Agano Jipya, mafundisho ya Yesu yalianzia katika masinagogi ya Kiyahudi. Yesu mwenyewe alifundisha katika masinagogi (Lk. 4:15–16; Mat. 4:23) na hivyo hivyo Paulo mara tu baaada ya kuwa Mkristo (Acts 9:20) na katika safari zake za umishonari hadi Antiokia ya Pisidia (Mdo. 13:14–16), Ikoniamu (Mdo. 14:1), Thesalonike (Mdo. 17:1–2), na Korintho (Mdo. 18:4).
 
 Yakobo anarejelea katika mkutano wa Wakristo kama "sinagogi" (Yak. 2:2).
 
@@ -30,10 +30,10 @@ Yakobo anarejelea katika mkutano wa Wakristo kama "sinagogi" (Yak. 2:2).
 
 Hatuna uhakika kamili kwamba nini hasa kilitokea katika sinagogi kama sehemu ya ibada ya kawaida, kuna baadhi ya vitu tunavyovijua kutokana na kusoma Agano Jipya:
 
-1. Kipengele cha kati kilikuwa kusoma andiko (Lk. 4:16-20; Mdo. 13:15; 15:21).
-2. Baada ya kusoma, mara nyingi kulikuwa na mafundisho na tafsiri ya andiko (Lk. 4:20-27; Mdo. 13:15-16).
+1. Kipengele cha kati kilikuwa kusoma andiko (Lk. 4:16–20; Mdo. 13:15; 15:21).
+2. Baada ya kusoma, mara nyingi kulikuwa na mafundisho na tafsiri ya andiko (Lk. 4:20–27; Mdo. 13:15–16).
 3. Kulikuwa na maombi (Mat. 6:5; Mk. 12:40).
-4. Kulikuwa na mpangilio wa kukaa wa matajiri na watu muhimu (Mat. 23:6; Yak. 2:2-3).
+4. Kulikuwa na mpangilio wa kukaa wa matajiri na watu muhimu (Mat. 23:6; Yak. 2:2–3).
 5. Kulikuwa na viongozi katika sinagogi, japokuwa hatujui hasa majukumu yao yalikuwa ni yapi (Lk. 8:41; Mk. 5:22; Mdo. 13:15).
 6. Kimsingi ibada katika sinagogi zilifanyika katika Sabato (Lk. 4:16; Mdo. 13:14; 17:2).
 

@@ -20,7 +20,7 @@ Mara ya kwanza tunaona inaelezewa na Inyasi katika barua ya mwaka 110 AD. Huu ul
 Baadhi ya makanisa haya yanaamini katika "mfululizo wa mitume", ambao unamaanisha Yesu ametoa nguvu kwa mitume kabla hajaondoka katika ulimwengu huu, halafu mitume wakaachilia nguvu hizo kwa kizazi kilichofuata cha viongozi kwa kuwawekea mikono. Wanaamini mfumo huu uliendelea mpaka wakati wa mitume halisi.
 
 - **Chanzo cha mamlaka:** Maaskofu.
-- **Maandiko ya msingi yaliyotumika:** Mathayo 16:18; Mdo. 1:15-26
+- **Maandiko ya msingi yaliyotumika:** Mathayo 16:18; Mdo. 1:15–26
 
 ### Muundo wa Presbaiteriani
 
@@ -28,10 +28,10 @@ Inasemekana kuwa "Nguvu kabisa huharibu kabisa." Warekebishaji, kama John Calvin
 
 Katika kanisa la Presbaiteriani la mahali, sio mchungaji mmoja anafanya maamuzi yote, bali kuna kikundi cha viongozi ambacho kinafanya kazi pamoja. Fundisho hili linaitwa "uwingi wa wazee." Baadhi ya wazee hawa wana uwezo wa kufundisha na kuhubiri, lakini sio mara zote wazee wote wanaweza. Hivyo kuna vikundi vya wazee vya kimkoa ambavyo vinatawala juu ya makanisa ya mahali na "mkutano mkuu" ambao unatawala juu ya vikundi vya wazee vya mkoa.
 
-Makanisa ya Presbaiteriani yanatofautiana na makanisa ya kijamaa kwasababu wanaamini kuwa haitoshi kwa kanisa la mahali kutenda kazi lenyewe, bali kunatakiwa kuwepo kwa kanisa zima, kanisa linaloonekana (Efe. 4:4-5; Yoh. 17:20-23). Wanaamini kuwa hii inaweza kutokea tu kama kuna vikundi vya wazee ambavyo vitaunganisha makanisa ya mahali pamoja.<sup>[3]</sup>
+Makanisa ya Presbaiteriani yanatofautiana na makanisa ya kijamaa kwasababu wanaamini kuwa haitoshi kwa kanisa la mahali kutenda kazi lenyewe, bali kunatakiwa kuwepo kwa kanisa zima, kanisa linaloonekana (Efe. 4:4–5; Yn. 17:20–23). Wanaamini kuwa hii inaweza kutokea tu kama kuna vikundi vya wazee ambavyo vitaunganisha makanisa ya mahali pamoja.<sup>[3]</sup>
 
 - **Chanzo cha mamlaka** Baraza la wazee.
-- **Maandiko ya msingi yaliyotumika:** Waebrania 13:17; 1 Wathesalonike 5:12-13
+- **Maandiko ya msingi yaliyotumika:** Waebrania 13:17; 1 Wathesalonike 5:12–13
 
 ### Kanisa la kijamaa
 
@@ -64,7 +64,7 @@ Tunaona kwamba miundo hii inatofautiana katika namna mamlaka ilivyogawanywa ndan
 
 ### Free Pentecostal Church of Tanzania (FPCT)
 
-> TUNAAMINI... Kwamba kila kanisa la mahali chini ya FPCT lina uhuru wa kujiongoza, chini ya Baraza halali la wazee lililoundwa kwa msingi wa Biblia. (Mdo. 20:28; 1 Pet. 5:1-3)<sup>[7]</sup>
+> TUNAAMINI... Kwamba kila kanisa la mahali chini ya FPCT lina uhuru wa kujiongoza, chini ya Baraza halali la wazee lililoundwa kwa msingi wa Biblia. (Mdo. 20:28; 1 Pet. 5:1–3)<sup>[7]</sup>
 
 ### Kanisa la Anglikana la Tanzania (ACT)
 

@@ -4,17 +4,17 @@ Before we talk more about the leaders of the church, we need to make sure we und
 
 <!--talk about the universal unity of the church: Ephesians 4:4–5 and John 17:20–23-->
 
-## The body (1 Cor. 12:12-27; Rom. 12:4-5)
+## The body (1 Cor. 12:12–27; Rom. 12:4–5)
 
-In the church, there is not one human leader who is more important than all other people in the church. The head of the body is not a human, but Jesus (Col. 1:18; Eph. 1:22-23; 5:23, 30). All members of the church, including pastors, bishops, and deacons, make up the body (Col. 1:24).
+In the church, there is not one human leader who is more important than all other people in the church. The head of the body is not a human, but Jesus (Col. 1:18; Eph. 1:22–23; 5:23, 30). All members of the church, including pastors, bishops, and deacons, make up the body (Col. 1:24).
 
 ### We are members of the body of Christ
 
-All members of the body are important (1 Cor. 12:21-25). We don't use every part of the body at all times, but through the day, every part of the body is used, even if we do not think about it.
+All members of the body are important (1 Cor. 12:21–25). We don't use every part of the body at all times, but through the day, every part of the body is used, even if we do not think about it.
 
 1 Peter 2:9 teaches us that all believers are part of the priesthood of Christ. There are some people in the church who will have gifts for leading and administration, but that does not mean that they are more spiritual or essential to the church.
 
-All members of the church should be closely joined together and work well together (Eph. 4:15-16).
+All members of the church should be closely joined together and work well together (Eph. 4:15–16).
 
 ### Each member has a different work or gift
 
@@ -31,9 +31,9 @@ We see that these lists have different gifts in them, but both have prophecy and
 
 #### An example of the gifts being used in the church
 
-An example of how these different gifts work in the church can be found in Acts 6:1-6. The apostles were feeding the widows every day, but they said that they had to stop, so that they could focus on prayer and ministry of the word. They chose seven men to do the work of feeding the widows. These men were "full of the Holy Ghost and wisdom." They were not less important than the apostles, but they had a different work to do.
+An example of how these different gifts work in the church can be found in Acts 6:1–6. The apostles were feeding the widows every day, but they said that they had to stop, so that they could focus on prayer and ministry of the word. They chose seven men to do the work of feeding the widows. These men were "full of the Holy Ghost and wisdom." They were not less important than the apostles, but they had a different work to do.
 
-Later, Stephen "did great wonders and miracles among the people" (Acts 6:8) and was killed because he was preaching about Jesus. Philip went to Samaria and preached the Gospel, healed the sick, and cast out demons (Acts 8:5-13). Both of these men had great spiritual power, but were humble enough to serve tables.
+Later, Stephen "did great wonders and miracles among the people" (Acts 6:8) and was killed because he was preaching about Jesus. Philip went to Samaria and preached the Gospel, healed the sick, and cast out demons (Acts 8:5–13). Both of these men had great spiritual power, but were humble enough to serve tables.
 
 ## Temple/Building
 
@@ -41,12 +41,12 @@ Even though many times we talk about the building as being the church, the churc
 
 - "You are God's field, God's building" (1 Cor. 3:9)
 - "You yourselves like living stones are being built up as a spiritual house" (1 Pet. 2:5)
-- "Built on the foundation of the apostles and prophets" (Eph. 2:20-22)
+- "Built on the foundation of the apostles and prophets" (Eph. 2:20–22)
 - "The church of the living God, the pillar and foundation of the truth" (1 Tim. 3:15)
 
-Christ is the cornerstone (Matt. 21:42; Mark 12:10-11; Luke 20:17; Acts 4:11; Eph. 2:19-20; 1 Pet. 2:6-7).
+Christ is the cornerstone (Matt. 21:42; Mark 12:10–11; Luke 20:17; Acts 4:11; Eph. 2:19–20; 1 Pet. 2:6–7).
 
-## Flock/Sheep (John 10:1-16; Acts 20:28-29; 1 Pet. 5:2-4)
+## Flock/Sheep (John 10:1–16; Acts 20:28–29; 1 Pet. 5:2–4)
 
 Jesus is the shepherd, and his people are the flock.
 
@@ -55,15 +55,15 @@ Jesus is the shepherd, and his people are the flock.
 - "The household of God, which is the church" (1 Tim. 3:15)
 - Believers as "members of the household of God" (Eph. 2:19)
 
-## Branches (John 15:1-8)
+## Branches (John 15:1–8)
 
-In Romans 11:17-24, Paul uses the metaphor of an olive tree to describe God's people.
+In Romans 11:17–24, Paul uses the metaphor of an olive tree to describe God's people.
 
 ## Field/Harvest
 
-The church is portrayed as God's field (1 Cor. 3:9) and workers in his harvest (Matt. 9:37-38).
+The church is portrayed as God's field (1 Cor. 3:9) and workers in his harvest (Matt. 9:37–38).
 
-## Bride of Christ (Eph. 5:25-32; Rev. 19:7-9, 21:2)
+## Bride of Christ (Eph. 5:25–32; Rev. 19:7–9, 21:2)
 
 Of all the symbols, this is the only one that is singular instead of being a composite or group.
 

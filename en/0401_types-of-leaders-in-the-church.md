@@ -2,7 +2,7 @@
 
 Today we have the idea of one leader in the church, the pastor, who is responsible for all decisions in the church and who cares for both spiritual and physical needs of the church. There is indication from Scripture that in the early church there was not a singular leader, but different leaders who each had different responsibilities. Some taught and preached while others took care of physical things. There is no indication from Scripture that one position was more important than others or that one person had more power than others.
 
-The New Testament gives qualifications for some positions of leadership, but it does not describe what those positions were and what they were supposed to do. We have two lists of types of leaders that have different titles in them. 1 Timothy 3:1-13 lists overseers and deacons, and Ephesians 4:11 lists apostle, prophet, evangelist, pastor, and teacher. In 1 Corinthians 12:28 we have a list that shares three of the titles from Ephesians 4:11 (apostles, prophets, and teachers). We can say that the list in Ephesians are people appointed by God for the good of the church and the list in 1 Timothy are leaders appointed by humans in the church. There can be overlap between these two lists. Someone can be both a pastor and an overseer and another person may be a pastor but not an overseer. The Didache, which was an early document used by the church, makes this clear by saying that people who are overseers or deacons do the ministry of prophets and teachers:
+The New Testament gives qualifications for some positions of leadership, but it does not describe what those positions were and what they were supposed to do. We have two lists of types of leaders that have different titles in them. 1 Timothy 3:1–13 lists overseers and deacons, and Ephesians 4:11 lists apostle, prophet, evangelist, pastor, and teacher. In 1 Corinthians 12:28 we have a list that shares three of the titles from Ephesians 4:11 (apostles, prophets, and teachers). We can say that the list in Ephesians are people appointed by God for the good of the church and the list in 1 Timothy are leaders appointed by humans in the church. There can be overlap between these two lists. Someone can be both a pastor and an overseer and another person may be a pastor but not an overseer. The Didache, which was an early document used by the church, makes this clear by saying that people who are overseers or deacons do the ministry of prophets and teachers:
 
 > Didache 15:1  
 > Elect, therefore, for yourselves overseers and deacons worthy of the Lord, men who are meek and not covetous, and true and approved, for they perform for you the service of prophets and teachers.<sup>[1]</sup>
@@ -54,7 +54,7 @@ Jesus was called an apostle (Heb. 3:1), probably in the sense that He brought th
 
 The Didache gives instructions on how to know if an apostle is true. If they ask for money or take advantage of your hospitality, then they are not a real apostle. This shows that in the early church there were people using this title to try to find personal gain:
 
-> Didache 11:3-6  
+> Didache 11:3–6  
 > And concerning the Apostles and Prophets, act thus according to the ordinance of the Gospel. Let every Apostle who comes to you be received as the Lord, but let him not stay more than one day, or if need be a second as well; but if he stay three days, he is a false prophet. And when an Apostle goes forth let him accept nothing but bread till he reach his night’s lodging; but if he ask for money, he is a false prophet.
 
 ### Witness of the resurrected Christ
@@ -63,7 +63,7 @@ The Didache gives instructions on how to know if an apostle is true. If they ask
 
 These are the people who are called apostles in the New Testament:
 
-- The Twelve (Matt. 10:2-4; **Luke 6:13**; Rev. 21:14)
+- The Twelve (Matt. 10:2–4; **Luke 6:13**; Rev. 21:14)
 - Paul (Rom. 1:1)
 - Barnabas (Acts 14:14)
 - James the Lord’s brother (Gal. 1:19)
@@ -79,15 +79,15 @@ Today we cannot be an apostle in the sense of a witness to the resurrect Christ,
 
 A prophet is one who speaks as a direct messenger for God. Here are some prophets in the New Testament:
 
-- Barnabas, Simeon Niger, Lucius of Cyrene, and Manaen (Acts 13:1-3)
+- Barnabas, Simeon Niger, Lucius of Cyrene, and Manaen (Acts 13:1–3)
 - Judas (Acts 15:32)
 - Silas (Acts 15:32)
-- Four daughters of Philip (Acts 21:8-9)
+- Four daughters of Philip (Acts 21:8–9)
 - Agabus (Acts 21:10)
 
 The Shepherd of Hermas, which was a document used by the early church, tells how to know if a prophet is real or not:
 
-> Shepherd of Hermas, Mandate 11:7-8  
+> Shepherd of Hermas, Mandate 11:7–8  
 > "How, then," said I, "sir, shall a man know which of them is a true prophet and which a false prophet?" "Listen," said he, "concerning both the prophets, and as I shall tell you, so you shall judge the true prophet and the false prophet. Test the man who has the Divine Spirit by his life. In the first place, he who has the spirit which is from above, is meek and gentle, and lowly-minded, and refrains from all wickedness and evil desire of this world, and make himself poorer than all men, and gives no answers to anyone when he is consulted, nor does he speak by himself (for the Holy Spirit does not speak when a man wishes to speak), but he speaks at that time when God wishes him to speak."
 
 ## Evangelist
@@ -102,7 +102,7 @@ Philip was an evangelist (Acts 21:8). (In the SUV it is just translated as "prea
 
 ## Pastor
 
-The noun is only used one time in the New Testament as a word for a church leader (Eph. 4:11) and two times in the verb form (I Pet. 5:1-4; Acts 20:28).
+The noun is only used one time in the New Testament as a word for a church leader (Eph. 4:11) and two times in the verb form (I Pet. 5:1–4; Acts 20:28).
 
 Even though today this is the most common name for a church leader, we have very little information from the Bible about what the duties were of the pastor.
 
@@ -116,16 +116,16 @@ Not everyone should desire to be a teacher, because a teacher will be judged mor
 
 The Didache tells how to know a good teacher:
 
-> Didache 11:1-2  
+> Didache 11:1–2  
 > Whosoever then comes and teaches you all these things aforesaid, receive him. But if the teachers himself be perverted and teach another doctrine to destroy these things, do not listen to him, but if his teaching be for the increase of righteousness and knowledge of the Lord, receive him as the Lord.
 
 ## Overseer/Bishop
 
 The Greek word is _episkopē_, which means "overseer." In fact, the _Neno Biblia Takatifu_ translates this to be "mwangalizi." The title _overseer_ "in its original usage, at least until the time of Ignatius, ...was restricted to those who exercised oversight in the local church. ...the office referred to is quite general and might encompass any position, secular or ecclesiastical, where ‘oversight’ was necessary."<sup>[5]</sup>
 
-Some people think that overseers and deacons were the same thing, but Philippians 1:1 show them as two separate positions. 1 Timothy 3:1-7 gives a list of qualifications for the overseer. The Didache also gives a list of qualifications:
+Some people think that overseers and deacons were the same thing, but Philippians 1:1 show them as two separate positions. 1 Timothy 3:1–7 gives a list of qualifications for the overseer. The Didache also gives a list of qualifications:
 
-> Didache 15:1-4  
+> Didache 15:1–4  
 > Appoint therefore for yourselves overseers and deacons worthy of the Lord, meek men, and not lovers of money, and truthful and approved, for they also minister to you the ministry of the prophets and teachers. Therefore do not despise them, for they are your honorable men together with the prophets and teachers. And reprove one another not in wrath but in peace as you find in the Gospel, and let none speak with any who has done a wrong to his neighbor, nor let him hear a word from you until he repents. But your prayers and alms and all your acts perform as ye find in the Gospel of our Lord.
 
 <!--Acts 20:28 (KJV 1900)
@@ -159,7 +159,7 @@ Even if the idea of the bishop being more powerful than other people in the chur
 
 ## Deacon/Servant
 
-1 Timothy 3:8-13 gives the qualifications for deacons. The word in Greek is _diakonis_, which means "servant." The _Biblia Habari Neno_ translates it as "wasaidizi." Greek has a different word for slave (duolos), which is not what is used here.
+1 Timothy 3:8–13 gives the qualifications for deacons. The word in Greek is _diakonis_, which means "servant." The _Biblia Habari Neno_ translates it as "wasaidizi." Greek has a different word for slave (duolos), which is not what is used here.
 
 ### Unofficial positions
 
@@ -184,11 +184,9 @@ When comparing the requirements for overseer and deacon in 1 Timothy chapter thr
 
 ## Elder
 
-<!--fix this first sentence in SW, because I sent it off to the translator wrong:-->
-
 This is the most common name for leaders in the church. The Greek word is _presbyteros_, which means "an older person." In all Swahili translations this word is translated as "mzee."
 
-It could just refer to an older peron in the church, but also could be an actual appointed position, as we see in Acts 14:23 when Paul and Barnabas appointed elders in the church. Titus 1:5-9 gives a list of qualifications of elders. Polycarp, who was taught by the Apostle John, also gave a list of qualifications for elders:
+It could just refer to an older peron in the church, but also could be an actual appointed position, as we see in Acts 14:23 when Paul and Barnabas appointed elders in the church. Titus 1:5–9 gives a list of qualifications of elders. Polycarp, who was taught by the Apostle John, also gave a list of qualifications for elders:
 
 > And the presbyters also must be compassionate, merciful towards all men, turning back the sheep that are gone astray, visiting all the infirm, not neglecting a widow or an orphan or a poor man: but providing always for that which is honorable in the sight of God and of men, abstaining from all anger, respect of persons, unrighteous judgment, being far from all love of money, not quick to believe anything against any man, not hasty in judgment, knowing that we are all debtors of sin.<sup>[12]</sup>
 

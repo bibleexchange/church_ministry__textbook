@@ -1,6 +1,6 @@
 # Characteristics of a good leader
 
-We have lists of characteristics that are good for overseers (1 Tim. 3:1-7), deacons (1 Tim. 3:8-13), and elders (Titus 1:5-9). While these lists are good for us to understand what Paul was looking for in a good leader, we have to remember them in their original setting. These are letters written to specific people for a reason. In part, Paul was writing to Timothy and Titus to try to stop false teachers that were causing problems in the church (1 Tim. 1:6-7; Titus 1:10-11). These were things that were opposite of what the false teachers were doing. The following table shows how the qualities of the leaders in the church are opposites of what the false teachers were doing:<sup>[1]</sup>
+We have lists of characteristics that are good for overseers (1 Tim. 3:1–7), deacons (1 Tim. 3:8–13), and elders (Titus 1:5–9). While these lists are good for us to understand what Paul was looking for in a good leader, we have to remember them in their original setting. These are letters written to specific people for a reason. In part, Paul was writing to Timothy and Titus to try to stop false teachers that were causing problems in the church (1 Tim. 1:6–7; Titus 1:10–11). These were things that were opposite of what the false teachers were doing. The following table shows how the qualities of the leaders in the church are opposites of what the false teachers were doing:<sup>[1]</sup>
 
 | Church Leaders                                                                                                                                                                                                                      | False Teachers                                                                                                                                                                                                                                   |
 | ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- | ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------ |
@@ -24,7 +24,7 @@ Besides these longer lists in 1 Timothy and Titus, we have shorter lists that li
 - Acts 6:3: "Wherefore, brethren, look ye out among you seven men of honest report, full of the Holy Ghost and wisdom, whom we may appoint over this business."
 - 2 Timothy 2:24: "And the servant of the Lord must not strive; but be gentle unto all men, apt to teach, patient,"
 
-The Didache had a similar list in 15:1-2:
+The Didache had a similar list in 15:1–2:
 
 > Appoint therefore for yourselves overseers and deacons worthy of the Lord, meek men, and not lovers of money, and truthful and approved, for they also minister to you the ministry of the prophets and teachers. Therefore do not despise them, for they are your honorable men together with the prophets and teachers.<sup>[2]</sup>
 
@@ -46,7 +46,7 @@ Also lists from Greek culture:
 
 All preachers can say they are called of God, but how do we know if they will really be a good leader in the church? We already said before that what makes a good leader in worldly things is not what will make a good leader in spiritual things.
 
-We should not just look for someone who has a strong personality or is a "powerful" preacher. We need to look at how they live their lives. Jesus said we would know a tree by its fruit (Matt. 7:15-20). The only "ministry" ability in the lists in 1 Timothy and Titus is that the overseers and elders should be able to teach. That shows us that Paul considered character to be more important than the ability to speak.
+We should not just look for someone who has a strong personality or is a "powerful" preacher. We need to look at how they live their lives. Jesus said we would know a tree by its fruit (Matt. 7:15–20). The only "ministry" ability in the lists in 1 Timothy and Titus is that the overseers and elders should be able to teach. That shows us that Paul considered character to be more important than the ability to speak.
 
 These good characteristics are not things special for only leaders, but they are expected of all Christians. The leader is supposed to be an example of these characteristics.
 
@@ -70,7 +70,7 @@ This was also supposed to be taught to the old men (Titus 2:2).
 
 ### Self control (1 Tim. 3:2; Titus 1:8)
 
-The term "self-control" "covers a range of meaning (prudence, moderation, sobriety), but gives the general sense of control over the behavior and the impulses and emotions beneath it."<sup>[5]</sup> Not everything is good for us. We need to learn to say "no" to the things that we want. When we come to Christ, we have to learn to deny ungodliness and worldly passions (Titus 2:11-12).
+The term "self-control" "covers a range of meaning (prudence, moderation, sobriety), but gives the general sense of control over the behavior and the impulses and emotions beneath it."<sup>[5]</sup> Not everything is good for us. We need to learn to say "no" to the things that we want. When we come to Christ, we have to learn to deny ungodliness and worldly passions (Titus 2:11–12).
 
 This is for all believers and not just for leaders (1 Tim. 2:9, 15; Titus 2:2, 4, 5, 6).
 
@@ -107,7 +107,7 @@ Humility listed in any of the qualification lists, but part of the teaching of J
 
 This is talking about spiritual maturity, and not age. The overseer should not be a new Christian.
 
-The elders still have wisdom that comes from life, so we should learn from them (Titus 2:3-4) and respect them (1 Pet. 5:5).
+The elders still have wisdom that comes from life, so we should learn from them (Titus 2:3–4) and respect them (1 Pet. 5:5).
 
 <!--Use of the title "elder."-->
 
@@ -119,7 +119,7 @@ Does someone have to be married to be a leader in the church? Overseers (1 Tim. 
 
 This is not very likely, since Paul was not married (1 Cor. 7:8). He would not tell people to do something that he does not do himself. Other apostles had wives, and Paul had that right to take a wife. He chose not to take a wife so that he would have more freedom to travel and preach the gospel (1 Cor. 9:5).
 
-Paul thought it was good for people who were not married to not seek to get married (1 Cor. 7:25–28). This is because those that are not married only have to care about spiritual things, but those that are married have to care about both spiritual and natural things (1 Cor. 7:32-35). Even Jesus taught that some people choose not to marry for the kingdom of God (Matthew 19:9-12).
+Paul thought it was good for people who were not married to not seek to get married (1 Cor. 7:25–28). This is because those that are not married only have to care about spiritual things, but those that are married have to care about both spiritual and natural things (1 Cor. 7:32–35). Even Jesus taught that some people choose not to marry for the kingdom of God (Matt. 19:9–12).
 
 Marriage is not a sin. It can even be a good thing. But it can limit your time, resources, and ability to move about.
 
@@ -161,13 +161,13 @@ In the Old Testament:
 - Deborah (Judges 4:4)
 - Huldah (2 Kings 22:14; 2 Chronicles 34:22)
 - The wife of Isaiah (Isaiah 8:3)
-- Sons and daughters will prophesy (Joel 2:28-29)
+- Sons and daughters will prophesy (Joel 2:28–29)
 
 In the New Testament:
 
-- Elisabeth (Luke 1:41-42)
+- Elisabeth (Luke 1:41–42)
 - Mary Mother of Jesus (Luke 1:46–55)
-- Anna (Luke 2:36-38)
+- Anna (Luke 2:36–38)
 - Unnamed patrons (mfazili) of Jesus (Luke 8:1–3)
 - Women followers of Jesus (Mark 15:40–41)
 - Mary Magdalene (John 20:18)

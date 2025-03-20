@@ -11,7 +11,7 @@ These three structures are shaped by the political situation at the time the chu
 
 <!--There is some inconsistency and overlap in these. Some church might be mostly presbyterian, but have bishops (not with apostolic succession) that step in (and maybe overstep) and push certain issues or agendas or try to "fix" problems-->
 
-<!-- probably need some discussion about the "keys" of heaven as used in Matthew 18:15–20 and Matt. 16:17-19-->
+<!-- probably need some discussion about the "keys" of heaven as used in Matthew 18:15–20 and Matt. 16:17–19-->
 
 ## The three types of church organizational structures
 
@@ -28,7 +28,7 @@ Some of these churches believe in "apostolic succession," which means that Jesus
 <!--The orthodox church has multiple leaders in the top position, instead of just one leader, like the pope in the Roman Catholic church. Both are Episcopal. -->
 
 - **Source of authority:** Bishops.
-- **Key Scriptures used:** Matthew 16:18; Acts 1:15-26
+- **Key Scriptures used:** Matthew 16:18; Acts 1:15–26
 
 ### Presbyterian structure
 
@@ -36,7 +36,7 @@ It is said that "absolute power corrupts absolutely." The Reformers, like John C
 
 In a local Presbyterian church, there is not one pastor that makes all the decisions, but there is a group of elders that work together. This doctrine is called the "plurality of elders." Some of these elders have the ability to teach and preach, but not always all of the elders can. There are then regional groups of elders that rule over the local churches and a "general assembly" that rules over the regional groups of elders.
 
-Presbyterian churches differ from Congregational churches because they believe that it is not enough for each local church to operate on its own, but that there needs to be a universal, visible church (Eph. 4:4-5; John 17:20-23). They believe that this can only happen if there are groups of elders that unite the local churches together.<sup>[3]</sup>
+Presbyterian churches differ from Congregational churches because they believe that it is not enough for each local church to operate on its own, but that there needs to be a universal, visible church (Eph. 4:4–5; John 17:20–23). They believe that this can only happen if there are groups of elders that unite the local churches together.<sup>[3]</sup>
 
 - **Source of authority:** Councils of elders.
 - **Key Scriptures used:** Hebrews 13:17; 1 Thessalonians 5:12–13
@@ -84,7 +84,7 @@ We see that these structures differ in how the authority is distributed in the c
 
 ### Free Pentecostal Church of Tanzania (FPCT)
 
-> We believe... That each local church under the FPCT has the freedom to govern itself, under a legitimate Council of Elders formed on the basis of the Bible. (Acts 20:28; 1 Pet. 5:1-3)<sup>[7]</sup>
+> We believe... That each local church under the FPCT has the freedom to govern itself, under a legitimate Council of Elders formed on the basis of the Bible. (Acts 20:28; 1 Pet. 5:1–3)<sup>[7]</sup>
 
 ### The Anglican Church of Tanzania (ACT)
 
