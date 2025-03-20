@@ -15,7 +15,7 @@ Maneno mengi yaliyotumika na kanisa kwa viongozi yalikuwa yameshatumika zaidi ka
 
 ## Mfanyakazi mwenza
 
-Neno lililotumika mara nyingi na Paulo kuelezea mtu maalum ni "mfanyakazi mwenza," lnalotokea mara kumi na mbili katika maandiko (Rum. 16:3, 9, 21; 1 Kor. 1:24; 8:23; Flp. 2:25; 4:3; Kol. 4:11; 1 The. 3:2; Fil. 1, 24).<sup>[2]</sup>
+Neno lililotumika mara nyingi na Paulo kuelezea mtu maalum ni "mfanyakazi mwenza," lnalotokea mara kumi na mbili katika maandiko (Rum. 16:3, 9, 21; 1 Kor. 1:24; 8:23; Flp. 2:25; 4:3; Kol. 4:11; 1 The. 3:2; Flm. 1, 24).<sup>[2]</sup>
 
 ## Mitume
 

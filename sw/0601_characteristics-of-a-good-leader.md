@@ -100,7 +100,7 @@ Viongozi bado wana hekima itokayo katika maisha, hivyo tunatakiwa kujifunza kuto
 
 ## Hali ya ndoa
 
-Je ni lazima mtu awe ameoa au kuolewa ndio awe kiongozi ndani ya kanisa? Mwangalizi (1 Tim. 3:2), mashemasi (1 Tim. 3:12), na wazee (Tito 1:6) naye ni mume wa mke mmoja. Kwa Kigiriki, hakuna tofauti kati ya neno "mwanamke" na "mke." Hivyo kwa Kigiriki hii tamaa ni "mwanaume wa mwanamke mmoja." Kuna maana rahisi nne za nini Paulo alisema.
+Je ni lazima mtu awe ameoa au kuolewa ndio awe kiongozi ndani ya kanisa? Mwangalizi (1 Tim. 3:2), mashemasi (1 Tim. 3:12), na wazee (Tit. 1:6) naye ni mume wa mke mmoja. Kwa Kigiriki, hakuna tofauti kati ya neno "mwanamke" na "mke." Hivyo kwa Kigiriki hii tamaa ni "mwanaume wa mwanamke mmoja." Kuna maana rahisi nne za nini Paulo alisema.
 
 ### Maana rahisi ya 1: Kiongozi lazima awe ameoa au kuolewa
 
@@ -160,7 +160,7 @@ Katika Agano Jipya:
 - Priska (Mdo. 18:26)
 - Binti zake Philipo (Mdo. 21:9)
 - Fibi (Rum. 16:1)
-- Yunia (Rum 16:7)
+- Yunia (Rum. 16:7)
 - Mama yake Rufo (Rum. 16:13)
 - Mariamu, Trifaina, Trifosa, na Persisi "Aliyejitahidi sana katika Bwana" (Rum. 16:6, 12)
 - Euodia na Sintike (Flp. 4:2-3)
@@ -184,12 +184,11 @@ Hizi ni baadhi ya nyaraka ngumu katika Biblia na wanafunzi werevu sana walikuja 
 
 #### Hizi ni amri kwaajili ya kanisa zima kwa nyakati zote na wanawake wanatakiwa waruhusiwe kuongea katika kanisa
 
-.
 Hii ndiyo watu wengi wanaamini. Lakini haielezei kwanini kuna wanawake wengi ambao walimtumikia Mungu katika Agano Jipya.
 
 #### Paulo alikuwa anajaribu kutatua matatizo mahususi na wanawake katika kanisa (Korintho na Efeso)
 
-Kwa kifungu katika 1 Wakorintho, tunajua Paulo alikuwa anaandika kutatua matatizo ya wenye ulemavu ndani ya kanisa. Mwanzoni katika barua anaandika kutatua ulemavu wa kunena kwa lugha na kutabiri. (Pale Paulo anasema kuwa wanawake wanaweza kuomba kwa nguvu na kutabiri katika kanisa. Angalia 1 Kor 11:5.) Anapoendelea kuongea kuhusu wanawake, alikuwa anajaribu kutatua tatizo la mwanamke mahususi Korintho anayesababisha usumbufu na sio kujaribu kufundisha jambo kwa kanisa zima kila mahali.
+Kwa kifungu katika 1 Wakorintho, tunajua Paulo alikuwa anaandika kutatua matatizo ya wenye ulemavu ndani ya kanisa. Mwanzoni katika barua anaandika kutatua ulemavu wa kunena kwa lugha na kutabiri. (Pale Paulo anasema kuwa wanawake wanaweza kuomba kwa nguvu na kutabiri katika kanisa. Angalia 1 Kor. 11:5.) Anapoendelea kuongea kuhusu wanawake, alikuwa anajaribu kutatua tatizo la mwanamke mahususi Korintho anayesababisha usumbufu na sio kujaribu kufundisha jambo kwa kanisa zima kila mahali.
 
 Na kwa 1 Timotheo, kulikuwa na wanawake katika kanisa kule Efeso ambao waligeuka wakaiacha kweli na kufuata mafundisho ya uongo (2 Tim. 3:6), Ni rahisi kuwa Paulo alikuwa anajaribu kuzuia hawa wanawake mahususi waliokuwa wanasababisha matabaka ndani ya kanisa.
 
@@ -197,7 +196,7 @@ Na kwa 1 Timotheo, kulikuwa na wanawake katika kanisa kule Efeso ambao waligeuka
 
 Ni rahisi kuwa wanawake katika haya makanisa walikuwa hawajasoma kwasababu hawakuruhusiwa kwenda shule au hata kwenye sinagogi. Kwasababu hawakuwa wameelewa kila kitu, walikuwa wanawauliza waume zao maswali na kuleta usumbufu katika kanisa.
 
-1 Wakorintho 14:34 inasema kwamba sheria inasema kwamba wanawake " hawaruhusiwi kuongea, lakini wawe katika kujitoa." Hakuna sheria katika Agano la Kale inayosema kitu kama hicho. Inawezekana kuwa "sheria" haikuwa ya Kiyahudi lakini ya Kirumi. Kama ndivyo ilivyo, inatakiwa itafsiriwe "mume" na "mke" badala ya "mwanaume" na "mwanamke". Kulikuwa na sheria za Kirumi ambazo hazikuruhusu mke kumsahihisha mume wake katika halaiki.
+1 Wakorintho 14:34 inasema kwamba sheria inasema kwamba wanawake " hawaruhusiwi kuongea, lakini wawe katika kujitoa." Hakuna sheria katika Agano la Kale inayosema kitu kama hicho. Inawezekana kuwa "sheria" haikuwa ya Kiyahudi lakini ya Kirumi. Kama ndivyo ilivyo, inatakiwa itafsiriwe "mume" na "mke" badala ya "mwanaume" na "mwanamke." Kulikuwa na sheria za Kirumi ambazo hazikuruhusu mke kumsahihisha mume wake katika halaiki.
 
 #### Paulo alikuwa anaongelea wazo lake mwenyewe na siyo wazo lililotoka kwa Mungu moja kwa moja
 

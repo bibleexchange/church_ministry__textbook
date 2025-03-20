@@ -2,6 +2,48 @@
 
 ## Swahili Abbreviations
 
+### Old Testament
+
+Mwa.
+Kut.
+Law.
+Hes.
+Kum.
+Yos.
+Amu.
+Rut.
+1 Sam.
+2 Sam.
+1 Fal.
+2 Fal.
+1 Nya.
+2 Nya.
+Ezr.
+Neh.
+Est.
+Ayu.
+Zab.
+Mit.
+Mhu.
+Wim.
+Isa.
+Yer.
+Omb.
+Eze.
+Dan.
+Hos.
+Yoe.
+Amo.
+Oba.
+Yon.
+Mik.
+Nah.
+Hab.
+Sef.
+Hag.
+Zek.
+Mal.
+
 ### New Testament
 
 Mt.

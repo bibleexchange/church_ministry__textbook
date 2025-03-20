@@ -44,7 +44,7 @@ Japokuwa mara nyingi tunazungumza kuhusu jengo kama kanisa, kanisa ni watu na si
 
 Yesu ni jiwe la pembeni (Mt. 21:42; Marko 12:11; Lk. 20:17; Mdo. 4:11; Efe. 2:19-20; 1 Pet. 2:6-7).
 
-## Kundi/Kondoo (Yohana 10:1-16; Matendo 20:28-29; 1 Pet. 5:2-4)
+## Kundi/Kondoo (Yohana 10:1-16; Mdo. 20:28-29; 1 Pet. 5:2-4)
 
 Yesu ni mchungaji, na watu wake ni kundi la kondoo.
 

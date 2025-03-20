@@ -20,7 +20,7 @@ Mara ya kwanza tunaona inaelezewa na Inyasi katika barua ya mwaka 110 AD. Huu ul
 Baadhi ya makanisa haya yanaamini katika "mfululizo wa mitume", ambao unamaanisha Yesu ametoa nguvu kwa mitume kabla hajaondoka katika ulimwengu huu, halafu mitume wakaachilia nguvu hizo kwa kizazi kilichofuata cha viongozi kwa kuwawekea mikono. Wanaamini mfumo huu uliendelea mpaka wakati wa mitume halisi.
 
 - **Chanzo cha mamlaka:** Maaskofu.
-- **Maandiko ya msingi yaliyotumika:** Mathayo 16:18; Matendo 1:15-26
+- **Maandiko ya msingi yaliyotumika:** Mathayo 16:18; Mdo. 1:15-26
 
 ### Muundo wa Presbaiteriani
 
@@ -35,12 +35,12 @@ Makanisa ya Presbaiteriani yanatofautiana na makanisa ya kijamaa kwasababu wanaa
 
 ### Kanisa la kijamaa
 
-Kama kanisa ni la kijamaa, basi mwili wa kanisa la mahali litatenda kazi kama shirika kamili. Shirika moja kubwa la kijamaa huko Marekani ni Southern Baptist Convention (SBC). Katika shirika hili, "kila kanisa la mahali linauhuru wakati wa kushirikiana kwa kujitolea na wengine kwaajili ya matakwa ya injili".<sup>[4]</sup> Ushirikiano na makanisa mengine katika shirika, lakini hakuna yeyote nje ya kanisa la mahali anayeweza kuwaambia nini cha kuamini au namna ya kuliongoza kanisa. Kanisa la mahali linaweza kuachana na shirika muda wowote, kama wanataka. Kama makanisa mengine yanahisi kuwa kanisa la mahali limepotea mbali na fundisho la shirika, wanaweza kupiga kura kuliondoa hilo kanisa la mahali.
+Kama kanisa ni la kijamaa, basi mwili wa kanisa la mahali litatenda kazi kama shirika kamili. Shirika moja kubwa la kijamaa huko Marekani ni Southern Baptist Convention (SBC). Katika shirika hili, "kila kanisa la mahali linauhuru wakati wa kushirikiana kwa kujitolea na wengine kwaajili ya matakwa ya injili."<sup>[4]</sup> Ushirikiano na makanisa mengine katika shirika, lakini hakuna yeyote nje ya kanisa la mahali anayeweza kuwaambia nini cha kuamini au namna ya kuliongoza kanisa. Kanisa la mahali linaweza kuachana na shirika muda wowote, kama wanataka. Kama makanisa mengine yanahisi kuwa kanisa la mahali limepotea mbali na fundisho la shirika, wanaweza kupiga kura kuliondoa hilo kanisa la mahali.
 
 Ndani ya kanisa la mahali, kunaweza kuwa na njia tofautitofauti za kuliendesha. Wengine wana mchungaji mmoja kama kichwa anayeongoza washirika bila kuambiwa na yeyote cha kufanya. Wengine wanatoa nguvu kwa washirikawote na maamuzi yote lazima yapigiwe kura. Kama washirika wote wakiwa na nguvu, "inafamfanya kila mshirika kuwajibika katika kuanzisha makanisa, kutangaza injili na kulinda uaminifu wa washirika wa injili. Wapresbaiteriani na wale wa muundo wa maaskofu wanawaweka wazee/maaskofu wawe na jukumu juu ya kazi hii."<sup>>[5]</sup>
 
 - **Chanzo cha mamlaka:** Au 1) Mchungaji binafsi, au 2) washirika
-- **Maandiko ya msingi yaliyotumika:** Mathayo 18:17; 1 Wakorintho 5:4; 1 Peto 2:9
+- **Maandiko ya msingi yaliyotumika:** Mathayo 18:17; 1 Wakorintho 5:4; 1 Petro 2:9
 
 ## Muundo upi ni bora?
 

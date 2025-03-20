@@ -4,15 +4,15 @@
 
 Mara tu baada ya siku ya pentekoste, tunaona kanisa lilianza kukutana kila siku katika nyumba ya mmojawapo wa washirika na kula pamoja. Kila siku walifanya hivi katika nyumba ya mmoja wa washirika wao (Mdo. 2:46; 5:42). Utendaji huu wa kukutana katika nyumba uliendelea hata mapaka Agano Jipya. Wakati Paulo alipokuwa Efeso, aligundua kuwa njia kuu ambayo kanisa lilieneza mafundisho ni katika "nyumba kwa nyumba" (Mdo. 20:20). Ifuatayo ni orodha ya watu ambao walikuwa na makanisa katika nyumba zao:
 
-1. Akila na Priska (1 Kor. 16:19; War. 16:3-5)
+1. Akila na Priska (1 Kor. 16:19; Rum. 16:3-5)
 2. Nimfa (Kol. 4:15)
 3. Filemoni (Flm. 1:1-2)
 4. Lidia (Mdo. 16:40)
-5. Labda Gayo (War. 16:23)
+5. Labda Gayo (Rum. 16:23)
 
 ### Alama za kifamilia
 
-Kwakuwa makanisa ya kwanza yalikutana nyumbani, kuna nyakati kadhaa ambazo katika maandiko tunaona orodha ya sheria kwaajili ya kila mtu katika familia (Efe. 5:21-6:9; Kol. 3:18-4; 1 Pet. 2:18-3:7). Hizi zilikuwa zinaitwa "alama za kifamilia"na zilikuwa ni kitu cha kawaida katika dunia ya Kirumi.
+Kwakuwa makanisa ya kwanza yalikutana nyumbani, kuna nyakati kadhaa ambazo katika maandiko tunaona orodha ya sheria kwaajili ya kila mtu katika familia (Efe. 5:21-6:9; Kol. 3:18-4; 1 Pet. 2:18-3:7). Hizi zilikuwa zinaitwa "alama za kifamilia" na zilikuwa ni kitu cha kawaida katika dunia ya Kirumi.
 
 1 Timotheo 5:1-2 inatuambia kuwa tunatakiwa tuwachukulie watu katika kanisa kama mwanafamilia (Agalia pia Gal. 6:10; Ebr. 13:1; 1 Pet. 2:17; 1 Yoh. 3:16).
 

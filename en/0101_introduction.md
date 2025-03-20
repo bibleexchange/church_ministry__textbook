@@ -18,11 +18,11 @@ There are also many things from our current church culture that does not come fr
 
 ### The number of people is not as important as spiritual growth
 
-Matthew 7:13-14 makes it clear that there will not be many people who enter the kingdom of heaven. As a leader in the church, you should not be focusing on getting many people into the church, but you should focus that the people you do have under your authority grow up spiritually (Eph. 4:11-13). Of course we can do outreach ministry to the lost, but what good is it if people come to church and remain spiritually immature?
+Matthew 7:13–14 makes it clear that there will not be many people who enter the kingdom of heaven. As a leader in the church, you should not be focusing on getting many people into the church, but you should focus that the people you do have under your authority grow up spiritually (Eph. 4:11–13). Of course we can do outreach ministry to the lost, but what good is it if people come to church and remain spiritually immature?
 
 ### Spiritual gifts are not as important as right relationship with God
 
-Some leaders look to have great power with God, but it is more important that we actually know who God is. Jesus said that in the last day, there will be people who will stand before the judgment and boast of all the miracles that they did. God will tell them to go away because He never knew them (Matt. 7:21-23).
+Some leaders look to have great power with God, but it is more important that we actually know who God is. Jesus said that in the last day, there will be people who will stand before the judgment and boast of all the miracles that they did. God will tell them to go away because He never knew them (Matt. 7:21–23).
 
 ## What is a leader?
 
@@ -30,10 +30,10 @@ Some leaders look to have great power with God, but it is more important that we
 
 In all four Gospels, Jesus tells his disciples that they are supposed to be servants:
 
-1. Matthew 20:20-28
-2. Mark 9:33-37; 10:35-45
-3. Luke 22:24-27
-4. John 13:12-17
+1. Matthew 20:20–28
+2. Mark 9:33–37; 10:35–45
+3. Luke 22:24–27
+4. John 13:12–17
 
 We call leaders in the church "servants" of God, but many times they are not really serving, but instead being served. As leaders, we should not look for special treatment in food, respect, or seating arrangement. When Jesus washed the feet of the disciples, that was the real work of a servant. We need to be ready to sweep floors, wash dishes, or clean the toilets if we want to be leaders in the church.
 
@@ -41,9 +41,9 @@ We call leaders in the church "servants" of God, but many times they are not rea
 
 We are not here specifically talking about the position of pastor in the church, but all leaders in the church, no matter what their title is, is supposed to take care of the people in the church. We will talk more in a later chapter about the official title of "pastor" in the church.
 
-A leader cares for the needs of others. The command is given two times in the New Testament for the leaders of the church to be shepherds of the flock of God (1 Peter 5:1-4; Acts 20:28). Jesus also told Peter to feed His sheep (John 21:15). The shepherd is one who takes care of all needs of the sheep, including making sure they have food and water and protecting them (Psalm 23).
+A leader cares for the needs of others. The command is given two times in the New Testament for the leaders of the church to be shepherds of the flock of God (1 Peter 5:1–4; Acts 20:28). Jesus also told Peter to feed His sheep (John 21:15). The shepherd is one who takes care of all needs of the sheep, including making sure they have food and water and protecting them (Psalm 23).
 
-Jesus is our example as the good shepherd who lays down His life for the sheep (John 10:11). Not everyone that is a leader in the church really cares for the people. Some will run away when things get difficult and leave the people to be scattered by the enemy (John 10:12-13).
+Jesus is our example as the good shepherd who lays down His life for the sheep (John 10:11). Not everyone that is a leader in the church really cares for the people. Some will run away when things get difficult and leave the people to be scattered by the enemy (John 10:12–13).
 
 <!--Need to expound on this more, since it very specifically talks about protecting from false doctrine:
 

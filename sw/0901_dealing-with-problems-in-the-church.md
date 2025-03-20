@@ -84,6 +84,6 @@ Paulo alitaka kumleta Yohana Marko katika safari nyingine ya kimisheni, lakini B
 
 Paulo alifikiria kuwa huduma inatakiwa iwahusu zaidi mataifa, lakini Petro alitaka kutazama zaidi wayahudi. Mitume waligundua huduma ya Paulo na kukubali kuwatuka kuhubiri kwa mataifa.
 
-### Ugomvi wa Euodia na Sintike (Fil. 4:2-3)
+### Ugomvi wa Euodia na Sintike (Flp. 4:2-3)
 
 Hatujui hasa kwanini hawa wanawake wawili walikuwa wanapigana, lakini Paulo aliwatia moyo wawe na nia moja katika Bwana.

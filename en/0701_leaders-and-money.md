@@ -34,7 +34,7 @@ The offerings were for different purposes:
 The priests and other Levites were not to have their own farms, so they depended on the tithes and offerings to survive. The main way that they lived was through the tithe, which was completely given to the Levites (Num. 18:21-28). The tithe would not be brought to the temple, but gathered together by the Levites in each town (Neh. 10:37-38). There was also a special tithe every three years that was not only for the Levites, but also for foreigners, orphans, and widows (Deut. 14:28-29). The priests in the temple also ate part of some of the offerings:
 
 1. **Burnt Offerings**: These were completely consumed by fire on the altar, so nobody ate them (Lev. 1:9).
-2. **Grain Offerings**: A portion was burned on the altar, but the remainder was given to the priests to eat (Lev. 6:16-18)
+2. **Grain Offerings**: A portion was burned on the altar, but the remainder was given to the priests to eat (Lev. 6:16-18).
 3. **Peace Offerings**: These were shared three ways. A portion was burned on the altar for God, certain parts were given to the priests (Lev. 7:31-34), and the remainder was eaten by the worshipper and their family.
 4. **Sin Offerings**: For most sin offerings, the priests were to eat the meat in the sanctuary area (Lev. 6:26).
 5. **Guilt Offerings**: Similar to sin offerings, the priests were to eat these in a holy place (Lev. 7:6).
@@ -164,7 +164,7 @@ This is the only specific time in the New Testament where we see the church aski
 
 Sometimes we give in church and we think that we don't need to give any more. But the New Testament makes it clear that a large part of our giving should be our own personal contributions to the poor:
 
-1. Give to him that asks (Matthew 5:42; Luke 6:30).
+1. Give to him that asks (Matt. 5:42; Luke 6:30).
 2. If you have two shirts, give to someone who has none (Luke 3:11).
 3. Sell your possessions and give to the poor (Matt. 19:16-22; Luke 12:33-34).
 4. We do not have the love of God if we do not help the poor (1 John 3:17-18).
@@ -197,7 +197,7 @@ There were some false teachers who tried to make a profit off the Gospel (1 Tim.
 ### In theory, it is good for church workers to find money for their labor
 
 Paul taught that it was good to take care of leaders in the church. He quotes from
-Deuteronomy 25:4 and says "Do not muzzle an ox while it is treading out the grain" and from Deut 24:15 when he says "Workers deserve their wages" (1 Timothy 5:17-18). If we receive instruction from teachers, then it is good to give material things back to them (Gal. 6:6).
+Deuteronomy 25:4 and says "Do not muzzle an ox while it is treading out the grain" and from Deuteronomy 24:15 when he says "Workers deserve their wages" (1 Tim. 5:17-18). If we receive instruction from teachers, then it is good to give material things back to them (Gal. 6:6).
 
 <!--Maybe expand on this with 1 Cor. 9:6-13. It gives a lot more examples of why someone should expect return for their work.-->
 
@@ -211,7 +211,7 @@ The early church fathers believed that it was good to help the prophets, as they
 
 After reading those Scriptures, it would seem that the answer is clear: "It is good to give to church workers." The problem is, we know from Scripture that just because something is good to do, doesn't mean that it is always best that we do that thing (1 Cor. 10:23).
 
-Paul recognized that it was his right to receive for doing the work of the Gospel, but he chose not to use that right (1 Cor. 9:14-18. For more clarification, also read verses 6-13). In verse 14, he is referring to when Jesus sent out the 70 (Luke 10:1–7).
+Paul recognized that it was his right to receive for doing the work of the Gospel, but he chose not to use that right (1 Cor. 9:14–18. For more clarification, also read verses 6–13). In verse 14, he is referring to when Jesus sent out the seventy (Luke 10:1–7).
 
 Why did Paul choose to not take money? He did not want to hinder the Gospel (1 Cor. 9:12). He thought that if he took money, then in the mind of some people, they would think he was only doing the ministry for the money. This would make the Gospel void (1 Corinthians 9:15).
 
