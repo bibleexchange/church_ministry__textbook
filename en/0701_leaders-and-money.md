@@ -233,5 +233,9 @@ Didache 12:1–5 says something similar to the teaching of Paul:
 
 ---
 
+<small>
+
 - [1] Clement I, P., Ignatius, S., Bishop of Antioch, Polycarp, S., Bishop of Smyrna, & Lake, K. (1912–1913). The Apostolic fathers (K. Lake, Ed.; Vol. 1, p. 329). Harvard University Press.
 - [2] Clement I, P., Ignatius, S., Bishop of Antioch, Polycarp, S., Bishop of Smyrna, & Lake, K. (1912–1913). The Apostolic fathers (K. Lake, Ed.; Vol. 1, p. 329). Harvard University Press
+
+</small>

@@ -102,6 +102,8 @@ We see that these structures differ in how the authority is distributed in the c
 
 ---
 
+<small>
+
 - [1] https://tabletalkmagazine.com/article/2023/04/an-overview-of-church-polities/
 - [2] https://michaeljfast.com/2022/01/17/did-you-know-that-church-polity-is-more-a-reflection-of-political-realities-than-some-kind-of-biblical-prescription-did-you-also-know-that-in-the-grand-scheme-of-things-it-really-isnt-a-big/
 - [3] https://www.thegospelcoalition.org/article/why-you-should-be-a-presbyterian/
@@ -111,3 +113,5 @@ We see that these structures differ in how the authority is distributed in the c
 - [7] > https://fpct.or.tz/page/tunachokiamini
 - [8] http://www.d-c-t.org/Governance.html
 - [9] https://mctswp.voog.com/who-we-are/headoffice
+
+</small>

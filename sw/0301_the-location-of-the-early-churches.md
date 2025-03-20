@@ -63,4 +63,8 @@ Wazee na Mitume waliandika barua katika Matendo 15 na kuzituma nje kwa makanisa,
 
 ---
 
+<small>
+
 - [1] Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 163). Word, Incorporated.
+
+</small>

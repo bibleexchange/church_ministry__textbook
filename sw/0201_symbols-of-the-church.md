@@ -67,4 +67,8 @@ Katika ishara zote, hii pekee ndiyo iko moja na sio katika kundi.
 
 ---
 
+<small>
+
 - [1] Ferguson, Everett. The Early Church at Work and Worship - Volume 1: Ministry, Ordination, Covenant, and Canon (p. 2). (Function). Kindle Edition.
+
+</small>

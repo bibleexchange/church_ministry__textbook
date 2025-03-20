@@ -63,4 +63,8 @@ The elders and apostles wrote a letter in Acts 15 and sent it out to the churche
 
 ---
 
+<small>
+
 - [1] Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 163). Word, Incorporated.
+
+</small>

@@ -69,4 +69,8 @@ Of all the symbols, this is the only one that is singular instead of being a com
 
 ---
 
+<small>
+
 - [1] Ferguson, Everett. The Early Church at Work and Worship - Volume 1: Ministry, Ordination, Covenant, and Canon (p. 2). (Function). Kindle Edition.
+
+</small>

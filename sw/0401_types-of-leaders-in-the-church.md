@@ -146,6 +146,8 @@ Wazee walitakiwa kuwaombea watu waliokuwa wagonjwa ndani ya kanisa (Yak. 5:14).
 
 ---
 
+<small>
+
 - [1] http://www.earlychristianwritings.com/text/didache-hoole.html
 - [2] Clarke, A. D. (2012). A Pauline Theology of Church Leadership (M. Goodacre, Ed.; Vol. 362). Bloomsbury.
 - [3] Foulkes, F. (1989). Ephesians: an introduction and commentary (Vol. 10, p. 124). InterVarsity Press.
@@ -158,3 +160,5 @@ Wazee walitakiwa kuwaombea watu waliokuwa wagonjwa ndani ya kanisa (Yak. 5:14).
 - [10] Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 196). Word, Incorporated.
 - [11] Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 195). Word, Incorporated.
 - [12] Phil. 6; tr. Lightfoot, Apostolic Fathers, 179
+
+</small>

@@ -185,9 +185,13 @@ Paulo angeweza kuchukua pesa kwaajili yake mwenyewe, lakini badala yake alifanya
 
 Didache 12:1–5 inasema kitu kinachofanana na mafundisho ya Paulo:
 
-> Na kila mmoja "anayekuja kwa jina la Bwana" apokelewe; lakini kama mmemjaribu mtamjua, kwa kuwa mtakuwa mnaelewa kweli na uongo. Kama ajaye ni msafiri, msaidieni kadri mwezavyo, lakini asibaki nanyi kwa Zaidi ya siku mbili, au, kama ikihitajika tatu. Na kama akitaka kuishi nanyi na kuwa na hila, muacheni afanye kazi kwaajili ya mkate wake. Lakini kama hana hila mpatieni kulingana na uelewa wenu, ili kwamba asiishi mtu miongoni mwenu akikaa bure bila kazi kwa kuwa ni mkristo. Lakini asipofanya hivyo atakuwa anatenda jambo lisilo halali kwa Kristo; jihadharini naye.
+> Na kila mmoja "anayekuja kwa jina la Bwana" apokelewe; lakini kama mmemjaribu mtamjua, kwa kuwa mtakuwa mnaelewa kweli na uongo. Kama ajaye ni msafiri, msaidieni kadri mwezavyo, lakini asibaki nanyi kwa Zaidi ya siku mbili, au, kama ikihitajika tatu. Na kama akitaka kuishi nanyi na kuwa na hila, muacheni afanye kazi kwaajili ya mkate wake. Lakini kama hana hila mpatieni kulingana na uelewa wenu, ili kwamba asiishi mtu miongoni mwenu akikaa bure bila kazi kwa kuwa ni Mkristo. Lakini asipofanya hivyo atakuwa anatenda jambo lisilo halali kwa Kristo; jihadharini naye.
 
 ---
 
+<small>
+
 - [1] Clement I, P., Ignatius, S., Bishop of Antioch, Polycarp, S., Bishop of Smyrna, & Lake, K. (1912–1913). The Apostolic fathers (K. Lake, Ed.; Vol. 1, p. 329). Harvard University Press.
 - [2] Clement I, P., Ignatius, S., Bishop of Antioch, Polycarp, S., Bishop of Smyrna, & Lake, K. (1912–1913). The Apostolic fathers (K. Lake, Ed.; Vol. 1, p. 329). Harvard University Press
+
+</small>

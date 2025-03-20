@@ -228,6 +228,8 @@ At the far ends of this debate are people who say women should do nothing at all
 
 ---
 
+<small>
+
 - [1] This table is adapted from Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 156). Word, Incorporated.
 - [2] Clement I, P., Ignatius, S., Bishop of Antioch, Polycarp, S., Bishop of Smyrna, & Lake, K. (1912–1913). The Apostolic fathers (K. Lake, Ed.; Vol. 1, p. 331). Harvard University Press.
 - [3] Clement I, P., Ignatius, S., Bishop of Antioch, Polycarp, S., Bishop of Smyrna, & Lake, K. (1912–1913). The Apostolic fathers (K. Lake, Ed.; Vol. 1, p. 289). Harvard University Press.
@@ -239,3 +241,5 @@ At the far ends of this debate are people who say women should do nothing at all
 - [9] Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 172). Word, Incorporated.
 - [10] Vincent, M. R. (1887). Word studies in the New Testament (Vol. 4, p. 229). Charles Scribner’s Sons.
 - [11] Towner, P. H. (2006). The Letters to Timothy and Titus (pp. 250–251). Wm. B. Eerdmans Publishing Co.
+
+</small>
