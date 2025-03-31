@@ -77,7 +77,7 @@ He must protect against false doctrine-->
 
 In Acts chapter 6, there is a story about the apostles. They were feeding the widows daily. They said they needed to find someone else to do that work, because when they were feeding people physical food, they were not able to have the time to minister in the Word of God (Acts 6:1–8).
 
-Caring for physical needs of people is a neglected aspect of Christian ministry, because like the apostles, we say we cannot leave the preaching of the Word to serve tables. But they still made sure the people were fed, even though they did not do it themselves. They found other leaders who could do that work. As a church, we cannot separate the spiritual needs of the people from the physical needs. There are many places in the New Testament that tell to care for the physical needs of people:
+Caring for physical needs of people is a neglected aspect of Christian ministry, because like the apostles, we say we cannot leave the preaching of the Word to serve tables. But they still made sure the people were fed, even though they did not do it themselves. They found other leaders who could do that work. As a church, we cannot separate the spiritual needs of the people from the physical needs. There are many places in the New Testament that tell us to care for the physical needs of people:
 
 1. Jesus not only taught the people, but He also gave them physical food (Matthew 15:29–32)
 2. Jesus will punish those who ignore the poor (Matthew 25:31–46)

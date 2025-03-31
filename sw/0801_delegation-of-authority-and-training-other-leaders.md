@@ -72,11 +72,11 @@ Yesu aliwaita wanafunzi wake wengi kwa njia inayofanana. Walikuwa wanafanya kazi
 
 1. Petro na Andrea (Mat. 4:18–20)
 2. Yakobo na Yohana mwana wa Zebedayo (Mat. 4:21–22)
-3. Filipo (Yohana 1:43–44)
-4. Nathanaaeli, pia aliyeitwa Batholomayo (Yohana 1:45–49)
+3. Filipo (Yn. 1:43–44)
+4. Nathanaaeli, pia aliyeitwa Batholomayo (Yn. 1:45–49)
 5. Mathayo, pia aliyeitwa Levi (Mat. 9:9; Mk. 2:14)
 6. Tomaso, Yakobo mwana wa Alfayo, Simoni aitwaye Zelote, Yuda mwana wa Yakobo, pia aliitwa Tadei. Hatuna rekodi ya wao kuwa waliitwa, lakini tunawaona wakiwa wameorodheshwa kati ya wanafunzi wengine katika Luka 6:12–16.
-7. Yuda Iskariote. Hatukuwa na rekodi ya namna alivyoitwa, lakini Yesu anasema kuwa aliitwa (Yohana 6:70–71).
+7. Yuda Iskariote. Hatukuwa na rekodi ya namna alivyoitwa, lakini Yesu anasema kuwa aliitwa (Yn. 6:70–71).
 
 ### Mathiya (Mdo. 1:23–26)
 

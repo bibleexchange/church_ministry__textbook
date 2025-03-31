@@ -7,7 +7,7 @@ Tumeshajifunza kuhusu aina za viongozi katika kanisa la Agano Jipya, lakini hii 
 
 Aina tatu za muundo wa kanisa: Maaskofu, Presbaiterian, na Mkutano. Miundo hii yote inakubaliana pamoja katika kweli za msingi kuhusu kanisa. Zote zinaamini kuwa kanisa linaundwa na mwili wa watu walioitwa kupendana na kuwa nuru ya dunia, lakini hazikubaliani kuhusu nani anatoa maamuzi kuhusu namna gani wanafanya vitendo hivi katika dunia, wote wanakubaliana kuwa Mungu ametoa viongozi kwenye kanisa kuwasaidia kukua, lakini hawakubaliani kuhusu ni kwa namna gani hasa wanafanya hivyo.
 
-Miundo hii mitatu imeundwa na hali za kisiasa wakati ambao kanisa lilianzishwa awali kama ilivyo ya ushawishi wa kibiblia."Hivyo mfumo wa maaskofu ulianzishwa kwa ukubwa wakati wafalme na Mamalkia walitawala; Mfumo wa Presbaiteriani ulianzishwa kwaukubwa wakati mabaraza ya mji na taifa yalitawala; Mfumo wa mkutano ulianzishwa kwa ukubwa wakati mfumo wa kidemokrasia ulitawala; na mfumo mseto ulianzishwa tu katika miaka 100 iliyopita au hivyo."<sup>[2]</sup>
+Miundo hii mitatu imeundwa na hali za kisiasa wakati ambao kanisa lilianzishwa awali kama ilivyo ya ushawishi wa kibiblia. "Hivyo mfumo wa maaskofu ulianzishwa kwa ukubwa wakati wafalme na Mamalkia walitawala; Mfumo wa Presbaiteriani ulianzishwa kwaukubwa wakati mabaraza ya mji na taifa yalitawala; Mfumo wa mkutano ulianzishwa kwa ukubwa wakati mfumo wa kidemokrasia ulitawala; na mfumo mseto ulianzishwa tu katika miaka 100 iliyopita au hivyo."<sup>[2]</sup>
 
 ## Aina tatu za muundo wa shirika wa kanisa
 

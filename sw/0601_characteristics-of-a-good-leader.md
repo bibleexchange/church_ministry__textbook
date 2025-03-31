@@ -92,7 +92,7 @@ Mchungaji wa Hermasi, ambayo ilikuwa ni taarifa iliyotumika kwaajili ya mafundis
 
 ## Umri
 
-1 Timotheo 3:6 inasema kwamba Maaskofu hawawezi kuwa mtu aliyeokoka karibuni, bali wale ambao inamaanisha wanatakiwa kuwa na umri Fulani? Timotheo alikuwa kijana mdogo na baadhi ya watu walifikiri hatakiwi kuwa kiongozi. Paulo alimwambia asiruhusu watu wengine kumzuia kwa kuwa alikuwa mdogo (1 Tim. 4:12).
+1 Timotheo 3:6 inasema kwamba waangalizi (maaskofu) hawawezi kuwa mtu aliyeokoka karibuni, bali wale ambao inamaanisha wanatakiwa kuwa na umri Fulani? Timotheo alikuwa kijana mdogo na baadhi ya watu walifikiri hatakiwi kuwa kiongozi. Paulo alimwambia asiruhusu watu wengine kumzuia kwa kuwa alikuwa mdogo (1 Tim. 4:12).
 
 Hii inazungumzia ukuaji wa kiroho. Mwangalizi hatakiwi kuwa muongofu mpya.
 
@@ -118,7 +118,7 @@ Hichi sicho hasa alichokimaanisha Paulo, kwa kuwa sio wayahudi wengi au Wakristo
 
 ### Maana rahisi ya 3: Kiongozi lazima awe mwaminifu kwa mke wake
 
-"Hii ingeruhusu uwezekano wa mwangalizi kuweza kuoa tena baada ya kifo, talaka au uzinzi lakini ingekataza ndoa za mitara na uasherati (hata kama maaskofu hawakuwa wameoa, kwa kuwa miongozo isingekuwa imewafunga wasiooa zaidi ya waliooa)."<sup>[9]</sup>
+"Hii ingeruhusu uwezekano wa mwangalizi kuweza kuoa tena baada ya kifo, talaka au uzinzi lakini ingekataza ndoa za mitara na uasherati (hata kama waangalizi hawakuwa wameoa, kwa kuwa miongozo isingekuwa imewafunga wasiooa zaidi ya waliooa)."<sup>[9]</sup>
 
 ### Maana rahisi ya 4: Kiongozi hatakiwi kuoa tena
 
