@@ -95,7 +95,7 @@ Neno la Kigiriki ni _episkopē_, ikimaanisha "mwangalizi." Kwa kweli, _Neno Bibl
 
 Baadhi ya watu wanafikiri kwamba waangalizi na mashemasi walikuwa kitu kimoja, lakini Wafilipi 1:1 inawaonyesha kama nafasi mbili tofauti. 1 Timotheo 3:1–7 inatoa orodha ya sifa za mwangalizi. Didache pia inatoa orodha ya sifa:
 
-> Didache 15:1–4 — Chagueni ninyi wenyewe waangalizi na mashemasi wanaostahili kwa Bwana, watu wapole na sio wenye kupenda fedha, wakweli na walioathibitishwa, kwani wanawatumikia niyi katika huduma ya manabii na walimu. Hivyo msiwadharau kwa kuwa ni watu wenu wa heshima pamoja na manabii na walimu. Na muonyane ninyi kwa ninyi kwa Amani na sio kwa hasira kama injili zisemavyo, na yeyote yule asiongee na yeyote aliyemkosea jirani yake wala kumruhusu asikie neno kutoka kwako mpaka atakapotubu. Lakni maombi yako na msaada na matendo yako yote ufanye kama injili ya Bwana wetu inavyosema.
+> Didache 15:1–4 — Chagueni ninyi wenyewe waangalizi na mashemasi wanaostahili kwa Bwana, watu wapole na sio wenye kupenda fedha, wakweli na walioathibitishwa, kwani wanawatumikia niyi katika huduma ya manabii na walimu. Hivyo msiwadharau kwa kuwa ni watu wenu wa heshima pamoja na manabii na walimu. Na muonyane ninyi kwa ninyi kwa amani na sio kwa hasira kama injili zisemavyo, na yeyote yule asiongee na yeyote aliyemkosea jirani yake wala kumruhusu asikie neno kutoka kwako mpaka atakapotubu. Lakni maombi yako na msaada na matendo yako yote ufanye kama injili ya Bwana wetu inavyosema.
 
 ### Mafundisho ya Inyasi juu ya uongozi wa kanisa mfumo wa uongozi wa Inyasi
 

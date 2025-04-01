@@ -35,7 +35,7 @@ Makuhani na walawi wengine hawakutakiwa kuwa na mashamba yao, hivyo walitegemea 
 
 1. **Sadaka za kuteketezwa**: Hizi ziliteketezwa kabisa kwa moto juu ya madhabahu, kwa hiyo hakuna aliyekula (Law. 1:9).
 2. **Sadaka za nafaka**: Sehemu iliteketezwa juu ya madhabahu, bali iliyobaki ilitolewa kwa makuhani wale (Law. 6:16–18).
-3. **Sadaka za Amani**: Hizi walizishiriki katika njia tatu. Sehemu iliteketezwa juu ya madhabahu kwa ajili ya Mungu, sehemu Fulani ilitolewa kwa makuhani (Law. 7:31–34), na sehemu iliyobaki ililiwa na washirika na familia zao.
+3. **Sadaka za amani**: Hizi walizishiriki katika njia tatu. Sehemu iliteketezwa juu ya madhabahu kwa ajili ya Mungu, sehemu Fulani ilitolewa kwa makuhani (Law. 7:31–34), na sehemu iliyobaki ililiwa na washirika na familia zao.
 4. **Sadaka za dhambi**: Kwa sadaka nyingi za dhambi, makuhani walitakiwa kula nyama katika mahali patakatifu (Law. 6:26).
 5. **Sadaka za hatia**: Kama sadaka za dhambi, makuhani walitakiwa kula hii katika mahali patakatifu (Law. 7:6).
 
