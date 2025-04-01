@@ -53,7 +53,7 @@ Muda ulivyoendelea na watu wengi ambao hawakuwa wayahudi waliingia na kuwa sehem
 
 Neno la Kigiriki kuhusu kanisa ni "Ekklesia." Ina maana "wale walioitwa." Kama maneno mengi yaliyotumika katika Agano Jipya, haikuwa halisi kwa kanisa, bali yalikuwa na maana katika maisha ya asili. Ekklesia lilikuwa neno lililotumika katika serikali za kiraia za mabaraza ya jiji.
 
-Neno hilo hilo lilitumika kwa kanisa katika nyumba moja, makanisa yote ya nyumbani katika jiji, na kanisa la kati. Tukizungumzia kanisa la "kanisa la Yerusalemu" haikuwa kundi moja la watu, bali makanisa kadhaa ya nyumbani, ambayo labda yalikuwa na baadhi ya muundo wa ushirika. Kwasababu kungekuwa na makanisa ya nyumbani kadhaa katika mji, ndio maana maneno ya uongozi mara zote ni nyingi (1 Kor. 12:28; Efe. 4:11; 1 The. 5:12; Ebr. 13:7, 17; Yak. 5:14).<sup>[1]</sup>kungekuwa na baadhi ya viongozi katika kila kanisa la nyumbani.
+Neno hilo hilo lilitumika kwa kanisa katika nyumba moja, makanisa yote ya nyumbani katika jiji, na kanisa la kati. Tukizungumzia kanisa la "kanisa la Yerusalemu" haikuwa kundi moja la watu, bali makanisa kadhaa ya nyumbani, ambayo labda yalikuwa na baadhi ya muundo wa ushirika. Kwasababu kungekuwa na makanisa ya nyumbani kadhaa katika mji, ndio maana maneno ya uongozi mara zote ni nyingi (1 Kor. 12:28; Efe. 4:11; 1 The. 5:12; Ebr. 13:7, 17; Yak. 5:14).<sup>[1]</sup> Kungekuwa na baadhi ya viongozi katika kila kanisa la nyumbani.
 
 ### Kanisa zima
 
