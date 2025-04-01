@@ -74,6 +74,31 @@ The term "self-control" "covers a range of meaning (prudence, moderation, sobrie
 
 This is for all believers and not just for leaders (1 Tim. 2:9, 15; Titus 2:2, 4, 5, 6).
 
+<!--I need to check the Greek on these to make sure they are lining up correctly. I was using this table to help me figure this out in English and Swahili, but I am a little unsure, so I want to check it with Greek.
+
+| NENO                            | SUV                          | NIV                            |
+|---------------------------------|------------------------------|--------------------------------|
+| 1 Tim. 3:2                      | 1 Tim. 3:2                   | 1 Tim. 3:2                     |
+| mtu asiye na lawama             | mtu asiyelaumika,            | above reproach                 |
+| mume wa mke mmoja               | mume wa mke mmoja,           | faithful to his wife           |
+| mwenye kiasi                    | mwenye kiasi                 | temperate                      |
+| anayejitawala                   | na busara,                   | self-controlled                |
+| anayeheshimika                  | mtu wa utaratibu,            | respectable                    |
+| mkarimu                         | mkaribishaji,                | hospitable                     |
+| ajuaye kufundisha               | ajuaye kufundisha;           | able to teach                  |
+|                                 |                              |                                |
+| Tito 1:8                        | Tito 1:8                     | Tito 1:8                       |
+| Bali awe mkarimu                | bali awe mkaribishaji        | Rather, he must be hospitable, |
+| anayependa mema                 | mpenda wema                  | one who loves what is good,    |
+| mwenye kiasi                    | mwenye kiasi                 | who is self-controlled,        |
+| mwenye haki                     | mwenye haki                  | upright,                       |
+| mwadilifu                       |                              |                                |
+| mnyofu                          |                              |                                |
+| mtakatifu                       | mtakatifu                    | holy                           |
+| na mwenye kuitawala nafsi yake. | mwenye kudhibiti nafsi yake; | and disciplined.               |
+
+-->
+
 ### Not angry (1 Tim. 3:3; Titus 1:7)
 
 - They must not be "a striker" (1 Tim. 3:3; Titus 1:7)
