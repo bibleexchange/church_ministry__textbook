@@ -128,7 +128,7 @@ Watu wasioamini kuwa mwanamke anaweza kushika nafasi katika kanisa wanasema kuwa
 
 Mara nyingine tunafikiri kwamba ushemasi ni nafasi ndogo kuliko uaskofu/mwangalizi, lakini "hakuna mapendekezo katika nyaraka kwamba ushemasi ni chini ya uaskofu/mwangalizi. Wote walifanya kazi za muhimu ndani ya kanisa, na ni shemasi ndiye aliambiwa wazi wazi kuwa dhawabu inawasubiri wale wanaotumikia vizuri."<sup>[10]</sup>
 
-Tukilinganisha mahitaji ya mwangalizi na shemasi katika 1 Timotheo sura ya tatu, kuna tofauti kwamba mashemasi hawakutakiwa kufundisha.
+Tukilinganisha mahitaji ya waangalizi na mashemasi katika 1 Timotheo sura ya tatu, tunaona tofauti ni kwamba mashemasi hawakutakiwa kufundisha.
 
 > Mahitaji ya shemasi yanatoa mawazo kwamba kulitakiwa kuwe na mawasiliano makubwa na watu: sio ndimi mbili; mwanamke wa heshima; mwaminifu katika ndoa; familia iliyoongozwa vizuri. Hitaji kwamba sio walafi inaweza kutoa mawazo juu ya baadhi ya majukumu kwaajili ya mfuko wa kanisa, labda katika utoaji wa fedha kwaajili ya masikini.<sup>[11]</sup>
 

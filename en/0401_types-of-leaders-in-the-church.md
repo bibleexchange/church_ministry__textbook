@@ -172,7 +172,7 @@ People who do not believe that woman can hold positions in the church say that P
 
 We sometimes think that the deacon is a lesser position than the overseer, but "there is no suggestion in the text that the deacon is subordinate to the overseer. Both performed vital functions in the church, and it is the deacon who is expressly told that a reward awaits those who serve well."<sup>[10]</sup>
 
-When comparing the requirements for overseer and deacon in 1 Timothy chapter three, we the difference that deacons were not required to teach.
+When comparing the requirements for overseers and deacons in 1 Timothy chapter three, we see the difference is that deacons were not required to teach.
 
 > The requirements for a deacon suggest that there would be substantial contact with people: not double-tongued; a dignified wife; faithful in marriage; a well-managed family. The requirement that they not be greedy may suggest some responsibility for the church’s purse, perhaps in the disbursement of funds to the poor.<sup>[11]</sup>
 
@@ -180,7 +180,7 @@ When comparing the requirements for overseer and deacon in 1 Timothy chapter thr
 
 This is the most common name for leaders in the church. The Greek word is _presbyteros_, which means "an older person." In all Swahili translations this word is translated as "mzee."
 
-It could just refer to an older peron in the church, but also could be an actual appointed position, as we see in Acts 14:23 when Paul and Barnabas appointed elders in the church. Titus 1:5–9 gives a list of qualifications of elders. Polycarp, who was taught by the Apostle John, also gave a list of qualifications for elders:
+It could just refer to an older person in the church, but also could be an actual appointed position, as we see in Acts 14:23 when Paul and Barnabas appointed elders in the church. Titus 1:5–9 gives a list of qualifications of elders. Polycarp, who was taught by the Apostle John, also gave a list of qualifications for elders:
 
 > And the presbyters also must be compassionate, merciful towards all men, turning back the sheep that are gone astray, visiting all the infirm, not neglecting a widow or an orphan or a poor man: but providing always for that which is honorable in the sight of God and of men, abstaining from all anger, respect of persons, unrighteous judgment, being far from all love of money, not quick to believe anything against any man, not hasty in judgment, knowing that we are all debtors of sin.<sup>[12]</sup>
 
