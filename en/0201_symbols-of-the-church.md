@@ -12,7 +12,7 @@ In the church, there is not one human leader who is more important than all othe
 
 All members of the body are important (1 Cor. 12:21–25). We don't use every part of the body at all times, but through the day, every part of the body is used, even if we do not think about it.
 
-1 Peter 2:9 teaches us that all believers are part of the priesthood of Christ. There are some people in the church who will have gifts for leading and administration, but that does not mean that they are more spiritual or essential to the church.
+1 Peter 2:9 teaches us that all believers are part of the priesthood of Christ (See also 1 Peter 2:5, Revelation 1:6, and 20:6). There are some people in the church who will have gifts for leading and administration, but that does not mean that they are more spiritual or essential to the church.
 
 All members of the church should be closely joined together and work well together (Eph. 4:15–16).
 

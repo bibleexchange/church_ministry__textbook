@@ -38,6 +38,8 @@ The Greek word for servant is doulos-->
 
 The term most frequently used by Paul to describe specific individuals is "co-worker," which occurs twelve times in his writing (Rom. 16:3, 9, 21; 1 Cor. 3:9; 2 Cor. 1:24; 8:23; Phil. 2:25; 4:3; Col. 4:11; I Thess. 3:2; Phlm. 1, 24).<sup>[2]</sup>
 
+<!--This term was used to refer to both men and women-->
+
 ## Apostle
 
 The title comes from a Greek word meaning "one who is sent." There are two meanings of apostle:
@@ -193,6 +195,8 @@ The elders were to pray for people in the church that were sick (James 5:14).
 <!--Elders are paired often with Apostles in the book of Acts (Acts 15:2, 4, 6, 22, 23; 16:4)-->
 <!--The titles of overseer and elder are used interchangeably. Paul instructs Titus concerning elders (Titus 1:5) and then in the next breath calls them overseers (Titus 1:7) with no indication that the audience has changed. That the list of qualities in Titus 1 so closely parallels that of the overseers in 1 Tim. 3:1–7 suggests that the two terms refer to the same office. This same interchangability is found in Acts 20 where Paul calls the Ephesian elders (v 17) and tells them that as overseers (v 28) they should take care of the church.
 Mounce, W. D. (2000). Pastoral Epistles (Vol. 46, p. 162). Word, Incorporated.-->
+<!--Several non-canonical documents reflect a situation where a plurality of presbyters was at the head of a congregation (Polycarp, Ep. 5–6, cf. 11; 2 Clem. 7.3; Asc. Isa . 3.23f; Orac. Sib. 2.264f.), even where the single bishop was clearly distinct from the presbyters, as in Ignatius (Polyc . 6; Trall. 3; Smyrn. 8). The church at Alexandria, according to their later reports (Jerome, Ep. 146; Eutychus, Annals, PG 111.982), was led by twelve presbyters, who chose a president as bishop out of their own number.
+Zondervan,. Who Runs the Church?: 4 Views on Church Government (Counterpoints: Church Life) (p. 80). (Function). Kindle Edition. quoting 21Everett Ferguson, ed., Encyclopedia of Early Christianity (New York: Garland, 1988), 752.-->
 
 <!--## Widow
 

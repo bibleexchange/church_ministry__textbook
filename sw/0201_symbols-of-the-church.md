@@ -10,7 +10,7 @@ Katika kanisa, hakuna kiongozi wa kimwili ambaye ni muhimu kuliko watu wengine k
 
 Washirika wote wa mwili ni muhimu (1 Kor. 12:21–25). Sio mara zote tunatumia kila sehemu ya mwili, lakini katika siku nzima, kila sehemu ya mwili inatumika, hata kama hatuifikirii.
 
-1 Petro 2:9 inatufundisha kuwa waamini wote ni sehemu ya ukuhani wa Kristo. Kuna baadhi ya watu ndani ya kanisa ambao watapata karama kwa ajili ya kuongoza na utawala, lakini hii haimaanishi kuwa wako kiroho sana au ni wa muhimu sana katika kanisa.
+1 Petro 2:9 inatufundisha kuwa waamini wote ni sehemu ya ukuhani wa Kristo (Angalia pia 1 Petro 2:5, Ufunuo 1:6, na 20:6). Kuna baadhi ya watu ndani ya kanisa ambao watapata karama kwa ajili ya kuongoza na utawala, lakini hii haimaanishi kuwa wako kiroho sana au ni wa muhimu sana katika kanisa.
 
 Washirika wote katika kanisa wanatakiwa washikamane pamoja na kufanya kazi pamoja (Efe. 4:15–16).
 
