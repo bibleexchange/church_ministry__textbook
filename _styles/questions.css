@@ -6,7 +6,6 @@ body {
 }
 p {
   margin-top: 0.75rem;
-  text-decoration: underline;
 }
 h1 {
   font-size: 1.2rem;
@@ -56,10 +55,10 @@ ol li {
   font-weight: normal;
 }
 
-.answers-hidden > li > strong {
+.answers-hidden li > strong {
   font-weight: normal;
   color: transparent;
   border-bottom: 1px solid black;
   padding-left: 3rem;
-  min-width: 4em;
+  min-width: 40em;
 }
