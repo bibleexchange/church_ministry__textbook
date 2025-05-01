@@ -72,7 +72,7 @@ Hii inaamrisha amri za kuwasaidia watu maskini ni kwa kila mtu kanisani siyo tu 
 
 Hatuwezi tu kuwaambia watu nini cha kufanya, bali na sisi pia tunatakiwa kufanya mambo tunayofundisha na kuyahubiri. Inatakiwa watu wengine watuige sisi na kutufuata katika kile tunachofanya (Tit. 2:7; Erb. 13:7)
 
-Timotheo alikuwa kijana, hivyo baadhi ya watu hawakumheshimu. Paulo alimwambia asiwaache kunyamaza ila awe mfano katika imani (1 Tim. 4:12).
+Timotheo alikuwa kijana, hivyo baadhi ya watu hawakumheshimu. Paulo alimwambia asiwaache kunyamaza ila awe kielelezo katika imani (1 Tim. 4:12).
 
 Hatulazimishi watu kufanya kilicho sahihi, bali tunafanya kilicho sahihi na wengine wataona na kufuata (1 Pet. 5:3).
 
