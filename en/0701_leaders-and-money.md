@@ -1,6 +1,6 @@
 # Leaders and money
 
-## What is the purpose of offerings in the New Testament?
+## What was the purpose of offerings in the Old Testament?
 
 We must remember that today we use some words in a different way than they were used in the Old Testament. Today, when we say "offering," we mean money. In the Old Testament, the "offering" was not money, but animals, grain, fruit, or drinks.
 
@@ -41,7 +41,7 @@ The priests and other Levites were not to have their own farms, so they depended
 
 <!--different levels of offerings based on if they were poor or rich-->
 
-## What is the purpose of offerings in the New Testament church?
+## What was the purpose of offerings in the New Testament church?
 
 ### The offerings were symbols that pointed forward to Christ
 

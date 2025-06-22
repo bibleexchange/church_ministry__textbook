@@ -1,6 +1,6 @@
 # Viongozi na pesa
 
-## Lengo la sadaka ni lipi katika Agano Jipya?
+## Lengo la sadaka zilikuwa lipi katika Agano la Kale?
 
 Tunatakiwa kukumbuka kuwa leo tunatumia baadhi ya maneno katika njia tofauti kuliko yalivyokuwa yanatumika katika Agano la Kale. Leo, tukisema "sadaka," tunamaanisha pesa. Katika Agano la Kale, "sadaka" haikuwa pesa, bali wanyama, nafaka, matunda au vinywaji.
 
@@ -39,7 +39,7 @@ Makuhani na walawi wengine hawakutakiwa kuwa na mashamba yao, hivyo walitegemea 
 4. **Sadaka za dhambi**: Kwa sadaka nyingi za dhambi, makuhani walitakiwa kula nyama katika mahali patakatifu (Law. 6:26).
 5. **Sadaka za hatia**: Kama sadaka za dhambi, makuhani walitakiwa kula hii katika mahali patakatifu (Law. 7:6).
 
-## Lengo la sadaka katika kanisa la Agano Jipya ni lipi?
+## Lengo la sadaka zilikuwa lipi katika Agano Jipya?
 
 ### Sadaka zilikuwa alama zilizoelekeza mbele kwa Kristo
 
