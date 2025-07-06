@@ -14,7 +14,7 @@ Immediately after the Day of Pentecost, we see the church started the practice o
 
 Because the early church met in houses, there are several times in the epistles that we see lists of rules for each person in the family (Eph. 5:21–6:9; Col. 3:18–4; 1 Pet. 2:18–3:7). These were called "household codes" and they were a common thing in the Roman world.
 
-1 Timothy 5:1–2 tels us that we are to treat the people in the church as family members (See also Gal. 6:10; Heb. 13:1; 1 Pet. 2:17; 1 John 3:16).
+1 Timothy 5:1–2 tells us that we are to treat the people in the church as family members (See also Gal. 6:10; Heb. 13:1; 1 Pet. 2:17; 1 John 3:16).
 
 ### The church is people
 

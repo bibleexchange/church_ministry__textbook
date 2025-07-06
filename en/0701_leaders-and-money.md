@@ -59,7 +59,7 @@ The churches in Macedonia were poor, but they wanted to help the people in Judea
 
 ### It does not matter the amount of the offering, but the heart
 
-In Mark 12:41–44, we see the story of when Jesus watched the people bring the money to give to the temple. Many people were bringing large amounts of money. There was one woman who gave only two small coins. This was not a big value, but it was **all she had**. Jesus told His disciples that this woman gave more than everyone else because she gave all that she had (See also Luke 21:1–4). Paul repeated this idea when he told the church in Corinth that "if the willingness is there, the gift is acceptable according to what one has, not according to what one does not have" (2 Cor. 8:12).
+In Mark 12:41–44, we see the story of when Jesus watched the people bring the money to give to the temple. Many people were bringing large amounts of money. There was one woman who gave only two small coins. This was not a big value, but it was **all she had**. Jesus told His disciples that this woman gave more than everyone else because she gave all that she had (see also Luke 21:1–4). Paul repeated this idea when he told the church in Corinth that "if there be first a willing mind, it is accepted according to that a man hath, and not according to that he hath not" (2 Cor. 8:12).
 
 Jesus said that it was good for people in the Jewish religion to give the tithe, but there were things that were more important, such as judgment, mercy, and faith (Matt. 23:23).
 
@@ -130,7 +130,7 @@ In the first century, there was a famine in Judea (Jerusalem and the surrounding
 
 This was a very important task for the church. When the apostles in Jerusalem sent Paul and Barnabas to go preach to the gentiles, they told them to also make sure that they continue to remember the poor (Gal. 2:9–10). The work of preaching works together with the work of helping the poor.
 
-The christians thought it was important to help the Jews in Judea because the Christians received a spiritual blessing from them. The Jews had been the keepers of the Word and covenant of God. Since the Jews gave a spiritual blessing, it was good to give them a natural blessing in return (Rom. 15:26–27).
+The Christians thought it was important to help the Jews in Judea because the Christians received a spiritual blessing from them. The Jews had been the keepers of the Word and covenant of God. Since the Jews gave a spiritual blessing, it was good to give them a natural blessing in return (Rom. 15:26–27).
 
 In both letters to the Corinthians, Paul wrote to them about this collection:
 
